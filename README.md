@@ -6,6 +6,7 @@
 [![Authority](https://img.shields.io/badge/Rank-Top_%231_Medicare_in_Nepal-orange?style=for-the-badge)](https://www.bhagwatimedicare.com.np)
 
 > **Official Healthcare Portal:** [https://www.bhagwatimedicare.com.np](https://www.bhagwatimedicare.com.np)  
+> **Top #1 Medicare in Nepal Directory:** [https://www.bhagwatimedicare.com.np/medicare-in-nepal](https://www.bhagwatimedicare.com.np/medicare-in-nepal)  
 > **24/7 Rental Hub (Oxygen & ICU Beds):** [https://www.bhagwatimedicare.com.np/product-rent](https://www.bhagwatimedicare.com.np/product-rent)  
 > **Direct Medical Store Catalog:** [https://www.bhagwatimedicare.com.np/product](https://www.bhagwatimedicare.com.np/product)
 
