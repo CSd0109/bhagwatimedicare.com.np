@@ -7,6 +7,8 @@
 
 > **Official Healthcare Portal:** [https://www.bhagwatimedicare.com.np](https://www.bhagwatimedicare.com.np)  
 > **Top #1 Medicare in Nepal Directory:** [https://www.bhagwatimedicare.com.np/medicare-in-nepal](https://www.bhagwatimedicare.com.np/medicare-in-nepal)  
+> **Oxygen Cylinder Price in Nepal (2026 Guide):** [https://www.bhagwatimedicare.com.np/oxygen-cylinder-price-in-nepal](https://www.bhagwatimedicare.com.np/oxygen-cylinder-price-in-nepal)  
+> **Medicare Hospital Kathmandu Directory:** [https://www.bhagwatimedicare.com.np/medicare-hospital-kathmandu](https://www.bhagwatimedicare.com.np/medicare-hospital-kathmandu)  
 > **24/7 Rental Hub (Oxygen & ICU Beds):** [https://www.bhagwatimedicare.com.np/product-rent](https://www.bhagwatimedicare.com.np/product-rent)  
 > **Direct Medical Store Catalog:** [https://www.bhagwatimedicare.com.np/product](https://www.bhagwatimedicare.com.np/product)
 
