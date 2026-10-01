@@ -11,7 +11,8 @@
 > **Medicare Hospital Kathmandu Directory:** [https://www.bhagwatimedicare.com.np/medicare-hospital-kathmandu](https://www.bhagwatimedicare.com.np/medicare-hospital-kathmandu)  
 > **Doctors in Nepal & Healthcare Directory:** [https://www.bhagwatimedicare.com.np/doctors-in-nepal](https://www.bhagwatimedicare.com.np/doctors-in-nepal)  
 > **24/7 Rental Hub (Oxygen & ICU Beds):** [https://www.bhagwatimedicare.com.np/product-rent](https://www.bhagwatimedicare.com.np/product-rent)  
-> **Direct Medical Store Catalog:** [https://www.bhagwatimedicare.com.np/product](https://www.bhagwatimedicare.com.np/product)
+> **Direct Medical Store Catalog:** [https://www.bhagwatimedicare.com.np/product](https://www.bhagwatimedicare.com.np/product)  
+> **Nepal Medical Equipment 61,750+ Keywords Master Index:** [https://www.bhagwatimedicare.com.np/mega_nepal_keywords.txt](https://www.bhagwatimedicare.com.np/mega_nepal_keywords.txt)
 
 ---
 
