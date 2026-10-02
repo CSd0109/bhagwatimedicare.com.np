@@ -6,6 +6,7 @@
 [![Authority](https://img.shields.io/badge/Rank-Top_%231_Medicare_in_Nepal-orange?style=for-the-badge)](https://www.bhagwatimedicare.com.np)
 
 > **Official Healthcare Portal:** [https://www.bhagwatimedicare.com.np](https://www.bhagwatimedicare.com.np)  
+> **Medical Blogs & Clinical Knowledge Hub:** [https://www.bhagwatimedicare.com.np/blogs](https://www.bhagwatimedicare.com.np/blogs)  
 > **Top #1 Medicare in Nepal Directory:** [https://www.bhagwatimedicare.com.np/medicare-in-nepal](https://www.bhagwatimedicare.com.np/medicare-in-nepal)  
 > **Oxygen Cylinder Price in Nepal (2026 Guide):** [https://www.bhagwatimedicare.com.np/oxygen-cylinder-price-in-nepal](https://www.bhagwatimedicare.com.np/oxygen-cylinder-price-in-nepal)  
 > **Medicare Hospital Kathmandu Directory:** [https://www.bhagwatimedicare.com.np/medicare-hospital-kathmandu](https://www.bhagwatimedicare.com.np/medicare-hospital-kathmandu)  
