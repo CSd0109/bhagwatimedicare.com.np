@@ -12,6 +12,7 @@
 > **Doctors in Nepal & Healthcare Directory:** [https://www.bhagwatimedicare.com.np/doctors-in-nepal](https://www.bhagwatimedicare.com.np/doctors-in-nepal)  
 > **24/7 Rental Hub (Oxygen & ICU Beds):** [https://www.bhagwatimedicare.com.np/product-rent](https://www.bhagwatimedicare.com.np/product-rent)  
 > **Direct Medical Store Catalog:** [https://www.bhagwatimedicare.com.np/product](https://www.bhagwatimedicare.com.np/product)  
+> **471+ Individual Medical Products Authority Catalog & Backlinks:** [PRODUCTS_INDEX.md](./PRODUCTS_INDEX.md)  
 > **Nepal Medical Equipment 61,750+ Keywords Master Index:** [https://www.bhagwatimedicare.com.np/mega_nepal_keywords.txt](https://www.bhagwatimedicare.com.np/mega_nepal_keywords.txt)
 
 ---
