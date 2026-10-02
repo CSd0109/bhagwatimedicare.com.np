@@ -8,6 +8,7 @@
 > **Official Healthcare Portal:** [https://www.bhagwatimedicare.com.np](https://www.bhagwatimedicare.com.np)  
 > **Medical Blogs & Clinical Knowledge Hub:** [https://www.bhagwatimedicare.com.np/blogs](https://www.bhagwatimedicare.com.np/blogs)  
 > **Top #1 Medicare in Nepal Directory:** [https://www.bhagwatimedicare.com.np/medicare-in-nepal](https://www.bhagwatimedicare.com.np/medicare-in-nepal)  
+> **Medicare National Medical Center (Basundhara):** [https://www.bhagwatimedicare.com.np/medicare-national-medical-center](https://www.bhagwatimedicare.com.np/medicare-national-medical-center)  
 > **Oxygen Cylinder Price in Nepal (2026 Guide):** [https://www.bhagwatimedicare.com.np/oxygen-cylinder-price-in-nepal](https://www.bhagwatimedicare.com.np/oxygen-cylinder-price-in-nepal)  
 > **Medicare Hospital Kathmandu Directory:** [https://www.bhagwatimedicare.com.np/medicare-hospital-kathmandu](https://www.bhagwatimedicare.com.np/medicare-hospital-kathmandu)  
 > **Doctors in Nepal & Healthcare Directory:** [https://www.bhagwatimedicare.com.np/doctors-in-nepal](https://www.bhagwatimedicare.com.np/doctors-in-nepal)  
