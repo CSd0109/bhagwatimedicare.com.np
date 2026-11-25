@@ -1,4 +1,4 @@
-# Tynor Cervical Pillow Regular Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Cervical Pillow Regular Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-cervical-pillow-regular-price-in-nepal)
 

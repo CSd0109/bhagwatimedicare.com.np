@@ -1,4 +1,4 @@
-# Flamingo Wrist Forearm Support Splint Adjustable Wrist Brace For Pain Relief Sprain Fracture Recovery Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Wrist Forearm Support Splint Adjustable Wrist Brace For Pain Relief Sprain Fracture Recovery Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-wrist-forearm-support-splint-adjustable-wrist-brace-for-pain-relief-sprain-fracture-recovery-price-in-nepal)
 

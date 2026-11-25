@@ -1,4 +1,4 @@
-# Medemove Sternal Support Adjustable Chest Sternum Support Belt Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Medemove Sternal Support Adjustable Chest Sternum Support Belt Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/medemove-sternal-support-adjustable-chest-sternum-support-belt-price-in-nepal)
 

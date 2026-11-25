@@ -1,4 +1,4 @@
-# Height Measuring Scale Stadiometer 210 Cm Portable Adult Children Height Measurement Stand For Hospital Clinic School Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Height Measuring Scale Stadiometer 210 Cm Portable Adult Children Height Measurement Stand For Hospital Clinic School Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/height-measuring-scale-stadiometer-210-cm-portable-adult-children-height-measurement-stand-for-hospital-clinic-school-price-in-nepal)
 

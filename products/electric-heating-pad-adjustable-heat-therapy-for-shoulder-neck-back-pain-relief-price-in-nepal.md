@@ -1,4 +1,4 @@
-# Electric Heating Pad Adjustable Heat Therapy For Shoulder Neck Back Pain Relief Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Electric Heating Pad Adjustable Heat Therapy For Shoulder Neck Back Pain Relief Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/electric-heating-pad-adjustable-heat-therapy-for-shoulder-neck-back-pain-relief-price-in-nepal)
 

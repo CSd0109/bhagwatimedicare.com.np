@@ -1,4 +1,4 @@
-# Tynor Cast Cover Leg Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Cast Cover Leg Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-cast-cover-leg-price-in-nepal)
 

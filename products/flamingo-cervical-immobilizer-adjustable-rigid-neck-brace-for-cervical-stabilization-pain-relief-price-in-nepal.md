@@ -1,4 +1,4 @@
-# Flamingo Cervical Immobilizer Adjustable Rigid Neck Brace For Cervical Stabilization Pain Relief Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Cervical Immobilizer Adjustable Rigid Neck Brace For Cervical Stabilization Pain Relief Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-cervical-immobilizer-adjustable-rigid-neck-brace-for-cervical-stabilization-pain-relief-price-in-nepal)
 

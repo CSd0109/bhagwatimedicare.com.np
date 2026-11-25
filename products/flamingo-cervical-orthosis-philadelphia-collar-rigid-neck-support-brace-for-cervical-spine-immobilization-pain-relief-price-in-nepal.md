@@ -1,4 +1,4 @@
-# Flamingo Cervical Orthosis Philadelphia Collar Rigid Neck Support Brace For Cervical Spine Immobilization Pain Relief Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Cervical Orthosis Philadelphia Collar Rigid Neck Support Brace For Cervical Spine Immobilization Pain Relief Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-cervical-orthosis-philadelphia-collar-rigid-neck-support-brace-for-cervical-spine-immobilization-pain-relief-price-in-nepal)
 

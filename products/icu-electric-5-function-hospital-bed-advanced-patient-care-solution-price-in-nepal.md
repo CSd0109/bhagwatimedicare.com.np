@@ -1,4 +1,4 @@
-# Icu Electric 5 Function Hospital Bed Advanced Patient Care Solution Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Icu Electric 5 Function Hospital Bed Advanced Patient Care Solution Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/icu-electric-5-function-hospital-bed-advanced-patient-care-solution-price-in-nepal)
 

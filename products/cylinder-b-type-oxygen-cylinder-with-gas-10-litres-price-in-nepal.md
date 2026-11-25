@@ -1,4 +1,4 @@
-# Cylinder B Type Oxygen Cylinder With Gas 10 Litres Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Cylinder B Type Oxygen Cylinder With Gas 10 Litres Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/cylinder-b-type-oxygen-cylinder-with-gas-10-litres-price-in-nepal)
 

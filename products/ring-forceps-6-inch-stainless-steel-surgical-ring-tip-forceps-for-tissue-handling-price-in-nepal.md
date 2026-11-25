@@ -1,4 +1,4 @@
-# Ring Forceps 6 Inch Stainless Steel Surgical Ring Tip Forceps For Tissue Handling Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Ring Forceps 6 Inch Stainless Steel Surgical Ring Tip Forceps For Tissue Handling Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/ring-forceps-6-inch-stainless-steel-surgical-ring-tip-forceps-for-tissue-handling-price-in-nepal)
 

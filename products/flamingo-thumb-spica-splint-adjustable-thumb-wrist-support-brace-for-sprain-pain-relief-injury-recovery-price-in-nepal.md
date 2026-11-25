@@ -1,4 +1,4 @@
-# Flamingo Thumb Spica Splint Adjustable Thumb Wrist Support Brace For Sprain Pain Relief Injury Recovery Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Thumb Spica Splint Adjustable Thumb Wrist Support Brace For Sprain Pain Relief Injury Recovery Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-thumb-spica-splint-adjustable-thumb-wrist-support-brace-for-sprain-pain-relief-injury-recovery-price-in-nepal)
 

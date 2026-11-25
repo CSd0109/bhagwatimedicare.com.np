@@ -1,4 +1,4 @@
-# Med E Move Arm Sling Pouch Tropical Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Med E Move Arm Sling Pouch Tropical Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/med-e-move-arm-sling-pouch-tropical-price-in-nepal)
 

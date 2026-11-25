@@ -1,4 +1,4 @@
-# Tynor Walker Invalids Hd Silver Universal Size Folding Walker Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Walker Invalids Hd Silver Universal Size Folding Walker Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-walker-invalids-hd-silver-universal-size-folding-walker-price-in-nepal)
 

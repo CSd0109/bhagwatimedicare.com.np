@@ -1,4 +1,4 @@
-# Commode Chair Portable Toilet Chair For Patients Elderly Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Commode Chair Portable Toilet Chair For Patients Elderly Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/commode-chair-portable-toilet-chair-for-patients-elderly-price-in-nepal)
 

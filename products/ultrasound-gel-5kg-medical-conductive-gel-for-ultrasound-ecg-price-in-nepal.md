@@ -1,4 +1,4 @@
-# Ultrasound Gel 5kg Medical Conductive Gel For Ultrasound Ecg Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Ultrasound Gel 5kg Medical Conductive Gel For Ultrasound Ecg Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/ultrasound-gel-5kg-medical-conductive-gel-for-ultrasound-ecg-price-in-nepal)
 

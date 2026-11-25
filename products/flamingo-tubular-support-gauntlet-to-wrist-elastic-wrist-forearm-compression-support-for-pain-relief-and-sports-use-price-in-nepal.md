@@ -1,4 +1,4 @@
-# Flamingo Tubular Support Gauntlet To Wrist Elastic Wrist Forearm Compression Support For Pain Relief And Sports Use Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Tubular Support Gauntlet To Wrist Elastic Wrist Forearm Compression Support For Pain Relief And Sports Use Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-tubular-support-gauntlet-to-wrist-elastic-wrist-forearm-compression-support-for-pain-relief-and-sports-use-price-in-nepal)
 

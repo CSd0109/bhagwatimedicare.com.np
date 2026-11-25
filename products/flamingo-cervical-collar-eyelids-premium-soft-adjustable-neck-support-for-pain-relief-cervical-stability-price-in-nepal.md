@@ -1,4 +1,4 @@
-# Flamingo Cervical Collar Eyelids Premium Soft Adjustable Neck Support For Pain Relief Cervical Stability Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Cervical Collar Eyelids Premium Soft Adjustable Neck Support For Pain Relief Cervical Stability Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-cervical-collar-eyelids-premium-soft-adjustable-neck-support-for-pain-relief-cervical-stability-price-in-nepal)
 

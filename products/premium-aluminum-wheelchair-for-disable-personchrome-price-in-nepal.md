@@ -1,4 +1,4 @@
-# Premium Aluminum Wheelchair For Disable Personchrome Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Premium Aluminum Wheelchair For Disable Personchrome Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/premium-aluminum-wheelchair-for-disable-personchrome-price-in-nepal)
 

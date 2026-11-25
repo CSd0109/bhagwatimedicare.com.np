@@ -1,4 +1,4 @@
-# Hospital Manual Bed 2 Function Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Hospital Manual Bed 2 Function Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/hospital-manual-bed-2-function-price-in-nepal)
 

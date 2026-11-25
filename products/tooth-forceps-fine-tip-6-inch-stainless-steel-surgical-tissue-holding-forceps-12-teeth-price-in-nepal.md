@@ -1,4 +1,4 @@
-# Tooth Forceps Fine Tip 6 Inch Stainless Steel Surgical Tissue Holding Forceps 12 Teeth Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tooth Forceps Fine Tip 6 Inch Stainless Steel Surgical Tissue Holding Forceps 12 Teeth Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tooth-forceps-fine-tip-6-inch-stainless-steel-surgical-tissue-holding-forceps-12-teeth-price-in-nepal)
 

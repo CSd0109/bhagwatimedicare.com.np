@@ -1,4 +1,4 @@
-# Curved Mosquito Artery Forceps 6 Inch Stainless Steel Hemostatic Surgical Forceps For Vessel Clamping Bleeding Control Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Curved Mosquito Artery Forceps 6 Inch Stainless Steel Hemostatic Surgical Forceps For Vessel Clamping Bleeding Control Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/curved-mosquito-artery-forceps-6-inch-stainless-steel-hemostatic-surgical-forceps-for-vessel-clamping-bleeding-control-price-in-nepal)
 

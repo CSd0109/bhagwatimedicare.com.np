@@ -1,4 +1,4 @@
-# Tynor Ankle Brace Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Ankle Brace Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-ankle-brace-price-in-nepal)
 

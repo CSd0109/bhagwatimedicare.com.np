@@ -1,4 +1,4 @@
-# K Life Tens Unit Digital Pain Relief Machine Electronic Nerve Stimulator For Physiotherapy Muscle Recovery Rehabilitation Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# K Life Tens Unit Digital Pain Relief Machine Electronic Nerve Stimulator For Physiotherapy Muscle Recovery Rehabilitation Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/k-life-tens-unit-digital-pain-relief-machine-electronic-nerve-stimulator-for-physiotherapy-muscle-recovery-rehabilitation-price-in-nepal)
 

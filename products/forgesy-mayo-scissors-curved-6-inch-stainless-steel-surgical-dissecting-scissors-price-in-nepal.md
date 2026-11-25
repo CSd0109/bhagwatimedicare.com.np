@@ -1,4 +1,4 @@
-# Forgesy Mayo Scissors Curved 6 Inch Stainless Steel Surgical Dissecting Scissors Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Forgesy Mayo Scissors Curved 6 Inch Stainless Steel Surgical Dissecting Scissors Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/forgesy-mayo-scissors-curved-6-inch-stainless-steel-surgical-dissecting-scissors-price-in-nepal)
 

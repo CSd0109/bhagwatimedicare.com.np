@@ -1,4 +1,4 @@
-# Dressing Scissors Stainless Steel Surgical Bandage Wound Dressing Removal Scissors For Hospitals And Clinics Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Dressing Scissors Stainless Steel Surgical Bandage Wound Dressing Removal Scissors For Hospitals And Clinics Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/dressing-scissors-stainless-steel-surgical-bandage-wound-dressing-removal-scissors-for-hospitals-and-clinics-price-in-nepal)
 

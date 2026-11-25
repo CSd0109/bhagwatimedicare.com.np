@@ -1,4 +1,4 @@
-# Tynor Pouch Arm Sling Tropical Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Pouch Arm Sling Tropical Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-pouch-arm-sling-tropical-price-in-nepal)
 

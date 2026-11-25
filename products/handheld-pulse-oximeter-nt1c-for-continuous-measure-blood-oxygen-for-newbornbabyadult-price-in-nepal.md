@@ -1,4 +1,4 @@
-# Handheld Pulse Oximeter Nt1c For Continuous Measure Blood Oxygen For Newbornbabyadult Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Handheld Pulse Oximeter Nt1c For Continuous Measure Blood Oxygen For Newbornbabyadult Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/handheld-pulse-oximeter-nt1c-for-continuous-measure-blood-oxygen-for-newbornbabyadult-price-in-nepal)
 

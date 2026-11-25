@@ -1,4 +1,4 @@
-# Flamingo Tubular Wrist Support Elastic Wrist Compression Support For Sprain Pain Relief Sports Use Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Tubular Wrist Support Elastic Wrist Compression Support For Sprain Pain Relief Sports Use Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-tubular-wrist-support-elastic-wrist-compression-support-for-sprain-pain-relief-sports-use-price-in-nepal)
 

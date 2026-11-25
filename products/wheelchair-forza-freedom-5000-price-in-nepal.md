@@ -1,4 +1,4 @@
-# Wheelchair Forza Freedom 5000 Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Wheelchair Forza Freedom 5000 Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/wheelchair-forza-freedom-5000-price-in-nepal)
 

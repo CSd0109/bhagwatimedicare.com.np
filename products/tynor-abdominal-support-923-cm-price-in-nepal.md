@@ -1,4 +1,4 @@
-# Tynor Abdominal Support 923 Cm Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Abdominal Support 923 Cm Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-abdominal-support-923-cm-price-in-nepal)
 

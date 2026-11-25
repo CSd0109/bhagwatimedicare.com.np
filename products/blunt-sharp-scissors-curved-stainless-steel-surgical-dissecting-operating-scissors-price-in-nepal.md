@@ -1,4 +1,4 @@
-# Blunt Sharp Scissors Curved Stainless Steel Surgical Dissecting Operating Scissors Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Blunt Sharp Scissors Curved Stainless Steel Surgical Dissecting Operating Scissors Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/blunt-sharp-scissors-curved-stainless-steel-surgical-dissecting-operating-scissors-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Walking Stick Tripod With Soft Top Handle 3 Leg Support Cane Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Walking Stick Tripod With Soft Top Handle 3 Leg Support Cane Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/walking-stick-tripod-with-soft-top-handle-3-leg-support-cane-price-in-nepal)
 

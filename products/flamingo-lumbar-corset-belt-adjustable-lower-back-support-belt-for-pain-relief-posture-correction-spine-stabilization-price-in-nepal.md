@@ -1,4 +1,4 @@
-# Flamingo Lumbar Corset Belt Adjustable Lower Back Support Belt For Pain Relief Posture Correction Spine Stabilization Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Lumbar Corset Belt Adjustable Lower Back Support Belt For Pain Relief Posture Correction Spine Stabilization Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-lumbar-corset-belt-adjustable-lower-back-support-belt-for-pain-relief-posture-correction-spine-stabilization-price-in-nepal)
 

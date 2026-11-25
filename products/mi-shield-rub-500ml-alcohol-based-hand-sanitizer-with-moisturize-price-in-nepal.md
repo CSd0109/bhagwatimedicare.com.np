@@ -1,4 +1,4 @@
-# Mi Shield Rub 500ml Alcohol Based Hand Sanitizer With Moisturize Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Mi Shield Rub 500ml Alcohol Based Hand Sanitizer With Moisturize Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/mi-shield-rub-500ml-alcohol-based-hand-sanitizer-with-moisturize-price-in-nepal)
 

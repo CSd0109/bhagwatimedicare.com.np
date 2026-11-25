@@ -1,4 +1,4 @@
-# Tynor Walking Stick Quadripod L12 Quad Cane 4 Leg Support Walking Stick Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Walking Stick Quadripod L12 Quad Cane 4 Leg Support Walking Stick Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-walking-stick-quadripod-l12-quad-cane-4-leg-support-walking-stick-price-in-nepal)
 

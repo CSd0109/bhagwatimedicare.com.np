@@ -1,4 +1,4 @@
-# Wheel Chair India Folding Chrome Polished Wheelchair With Attendant Brakes Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Wheel Chair India Folding Chrome Polished Wheelchair With Attendant Brakes Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/wheel-chair-india-folding-chrome-polished-wheelchair-with-attendant-brakes-price-in-nepal)
 

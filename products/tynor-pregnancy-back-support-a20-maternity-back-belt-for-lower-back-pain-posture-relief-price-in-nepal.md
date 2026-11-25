@@ -1,4 +1,4 @@
-# Tynor Pregnancy Back Support A20 Maternity Back Belt For Lower Back Pain Posture Relief Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Pregnancy Back Support A20 Maternity Back Belt For Lower Back Pain Posture Relief Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-pregnancy-back-support-a20-maternity-back-belt-for-lower-back-pain-posture-relief-price-in-nepal)
 

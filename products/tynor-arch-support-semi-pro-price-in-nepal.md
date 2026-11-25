@@ -1,4 +1,4 @@
-# Tynor Arch Support Semi Pro Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Arch Support Semi Pro Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-arch-support-semi-pro-price-in-nepal)
 

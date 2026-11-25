@@ -1,4 +1,4 @@
-# Tynor L07 Walking Stick Soft Top Handle Adjustable Lightweight Cane Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor L07 Walking Stick Soft Top Handle Adjustable Lightweight Cane Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-l07-walking-stick-soft-top-handle-adjustable-lightweight-cane-price-in-nepal)
 

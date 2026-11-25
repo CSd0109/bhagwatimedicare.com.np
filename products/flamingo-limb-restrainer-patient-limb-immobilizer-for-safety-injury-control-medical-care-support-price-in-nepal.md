@@ -1,4 +1,4 @@
-# Flamingo Limb Restrainer Patient Limb Immobilizer For Safety Injury Control Medical Care Support Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Limb Restrainer Patient Limb Immobilizer For Safety Injury Control Medical Care Support Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-limb-restrainer-patient-limb-immobilizer-for-safety-injury-control-medical-care-support-price-in-nepal)
 

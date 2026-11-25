@@ -1,4 +1,4 @@
-# Ar Grade Ethanol 999 Pure Laboratory Reagent Ethyl Alcohol Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Ar Grade Ethanol 999 Pure Laboratory Reagent Ethyl Alcohol Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/ar-grade-ethanol-999-pure-laboratory-reagent-ethyl-alcohol-price-in-nepal)
 

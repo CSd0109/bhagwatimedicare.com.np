@@ -1,4 +1,4 @@
-# Allis Forceps 6 Inch Stainless Steel Surgical Tissue Holding Forceps Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Allis Forceps 6 Inch Stainless Steel Surgical Tissue Holding Forceps Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/allis-forceps-6-inch-stainless-steel-surgical-tissue-holding-forceps-price-in-nepal)
 

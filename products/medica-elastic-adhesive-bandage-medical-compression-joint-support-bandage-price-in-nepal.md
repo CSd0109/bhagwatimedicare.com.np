@@ -1,4 +1,4 @@
-# Medica Elastic Adhesive Bandage Medical Compression Joint Support Bandage Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Medica Elastic Adhesive Bandage Medical Compression Joint Support Bandage Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/medica-elastic-adhesive-bandage-medical-compression-joint-support-bandage-price-in-nepal)
 

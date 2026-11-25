@@ -1,4 +1,4 @@
-# Disposable Face Mask 3 Ply Surgical Protective Face Mask With Ear Loop For Daily Protection Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Disposable Face Mask 3 Ply Surgical Protective Face Mask With Ear Loop For Daily Protection Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/disposable-face-mask-3-ply-surgical-protective-face-mask-with-ear-loop-for-daily-protection-price-in-nepal)
 

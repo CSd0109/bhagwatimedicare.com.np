@@ -1,4 +1,4 @@
-# Pediatric Pulse Oximeter Child Finger Spo Pulse Monitor Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Pediatric Pulse Oximeter Child Finger Spo Pulse Monitor Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/pediatric-pulse-oximeter-child-finger-spo-pulse-monitor-price-in-nepal)
 

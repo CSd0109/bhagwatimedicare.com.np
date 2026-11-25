@@ -1,4 +1,4 @@
-# Longfian Jay 1000p Portable Oxygen Concentrator Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Longfian Jay 1000p Portable Oxygen Concentrator Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/longfian-jay-1000p-portable-oxygen-concentrator-price-in-nepal)
 

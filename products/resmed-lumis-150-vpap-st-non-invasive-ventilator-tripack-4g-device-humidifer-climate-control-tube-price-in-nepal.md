@@ -1,4 +1,4 @@
-# Resmed Lumis 150 Vpap St Non Invasive Ventilator Tripack 4g Device Humidifer Climate Control Tube Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Resmed Lumis 150 Vpap St Non Invasive Ventilator Tripack 4g Device Humidifer Climate Control Tube Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/resmed-lumis-150-vpap-st-non-invasive-ventilator-tripack-4g-device-humidifer-climate-control-tube-price-in-nepal)
 

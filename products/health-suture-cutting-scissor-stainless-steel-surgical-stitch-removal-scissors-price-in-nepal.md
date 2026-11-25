@@ -1,4 +1,4 @@
-# Health Suture Cutting Scissor Stainless Steel Surgical Stitch Removal Scissors Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Health Suture Cutting Scissor Stainless Steel Surgical Stitch Removal Scissors Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/health-suture-cutting-scissor-stainless-steel-surgical-stitch-removal-scissors-price-in-nepal)
 

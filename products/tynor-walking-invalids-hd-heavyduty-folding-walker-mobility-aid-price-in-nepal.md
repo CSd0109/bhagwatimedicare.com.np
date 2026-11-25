@@ -1,4 +1,4 @@
-# Tynor Walking Invalids Hd Heavyduty Folding Walker Mobility Aid Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Walking Invalids Hd Heavyduty Folding Walker Mobility Aid Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-walking-invalids-hd-heavyduty-folding-walker-mobility-aid-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Resmed Stellar 150 Bipap Machine Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Resmed Stellar 150 Bipap Machine Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/resmed-stellar-150-bipap-machine-price-in-nepal)
 

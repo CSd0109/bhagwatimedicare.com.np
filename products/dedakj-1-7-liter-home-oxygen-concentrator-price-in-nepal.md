@@ -1,4 +1,4 @@
-# Dedakj 1 7 Liter Home Oxygen Concentrator Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Dedakj 1 7 Liter Home Oxygen Concentrator Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/dedakj-1-7-liter-home-oxygen-concentrator-price-in-nepal)
 

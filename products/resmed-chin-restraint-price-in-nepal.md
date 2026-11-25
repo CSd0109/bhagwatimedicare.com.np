@@ -1,4 +1,4 @@
-# Resmed Chin Restraint Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Resmed Chin Restraint Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/resmed-chin-restraint-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Cocoon Buds Premium Baby Diaper Ultra Soft Leak Proof Highly Absorbent Diapers For Babies Size Nbsmlxlxxl Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Cocoon Buds Premium Baby Diaper Ultra Soft Leak Proof Highly Absorbent Diapers For Babies Size Nbsmlxlxxl Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/cocoon-buds-premium-baby-diaper-ultra-soft-leak-proof-highly-absorbent-diapers-for-babies-size-nbsmlxlxxl-price-in-nepal)
 

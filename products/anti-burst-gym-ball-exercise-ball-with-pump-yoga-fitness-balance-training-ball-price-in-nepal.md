@@ -1,4 +1,4 @@
-# Anti Burst Gym Ball Exercise Ball With Pump Yoga Fitness Balance Training Ball Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Anti Burst Gym Ball Exercise Ball With Pump Yoga Fitness Balance Training Ball Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/anti-burst-gym-ball-exercise-ball-with-pump-yoga-fitness-balance-training-ball-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Med E Move 2 Kg Weight Cuff Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Med E Move 2 Kg Weight Cuff Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/med-e-move-2-kg-weight-cuff-price-in-nepal)
 

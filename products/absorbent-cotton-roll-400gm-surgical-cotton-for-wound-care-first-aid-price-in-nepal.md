@@ -1,4 +1,4 @@
-# Absorbent Cotton Roll 400gm Surgical Cotton For Wound Care First Aid Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Absorbent Cotton Roll 400gm Surgical Cotton For Wound Care First Aid Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/absorbent-cotton-roll-400gm-surgical-cotton-for-wound-care-first-aid-price-in-nepal)
 

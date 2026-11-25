@@ -1,4 +1,4 @@
-# Yuwell 402ai Ultrasonic Nebulizer Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Yuwell 402ai Ultrasonic Nebulizer Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/yuwell-402ai-ultrasonic-nebulizer-price-in-nepal)
 

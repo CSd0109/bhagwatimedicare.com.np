@@ -1,4 +1,4 @@
-# Dissecting Kit Medical Student Anatomy Instrument Set Stainless Steel Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Dissecting Kit Medical Student Anatomy Instrument Set Stainless Steel Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/dissecting-kit-medical-student-anatomy-instrument-set-stainless-steel-price-in-nepal)
 

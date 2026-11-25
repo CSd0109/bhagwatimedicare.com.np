@@ -1,4 +1,4 @@
-# Power One P10 Hearing Aid Batteries Zinc Air Size 10 Long Life Batteries For Hearing Aids German Technology Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Power One P10 Hearing Aid Batteries Zinc Air Size 10 Long Life Batteries For Hearing Aids German Technology Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/power-one-p10-hearing-aid-batteries-zinc-air-size-10-long-life-batteries-for-hearing-aids-german-technology-price-in-nepal)
 

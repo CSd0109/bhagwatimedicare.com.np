@@ -1,4 +1,4 @@
-# Med E Move Knee Cap Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Med E Move Knee Cap Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/med-e-move-knee-cap-price-in-nepal)
 

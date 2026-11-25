@@ -1,4 +1,4 @@
-# Tynor A34 Taylors Brace Urbane Spinal Support Brace For Immobilization Posture Correction Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor A34 Taylors Brace Urbane Spinal Support Brace For Immobilization Posture Correction Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-a34-taylors-brace-urbane-spinal-support-brace-for-immobilization-posture-correction-price-in-nepal)
 

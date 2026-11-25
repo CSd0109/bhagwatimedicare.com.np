@@ -1,4 +1,4 @@
-# Lifeline Disposable Syringe 3ml Sterile Single Use Medical Syringe With Needle 100 Pcs Pack Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Lifeline Disposable Syringe 3ml Sterile Single Use Medical Syringe With Needle 100 Pcs Pack Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/lifeline-disposable-syringe-3ml-sterile-single-use-medical-syringe-with-needle-100-pcs-pack-price-in-nepal)
 

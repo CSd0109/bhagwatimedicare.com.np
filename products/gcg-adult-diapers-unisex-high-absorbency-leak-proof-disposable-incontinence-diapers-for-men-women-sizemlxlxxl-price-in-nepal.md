@@ -1,4 +1,4 @@
-# Gcg Adult Diapers Unisex High Absorbency Leak Proof Disposable Incontinence Diapers For Men Women Sizemlxlxxl Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Gcg Adult Diapers Unisex High Absorbency Leak Proof Disposable Incontinence Diapers For Men Women Sizemlxlxxl Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/gcg-adult-diapers-unisex-high-absorbency-leak-proof-disposable-incontinence-diapers-for-men-women-sizemlxlxxl-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Tynor Knee Cap Comfeel Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Knee Cap Comfeel Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-knee-cap-comfeel-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Flamingo Arm Sling Strap Universal Size Adjustable Arm Support Strap For Fracture Sprain Recovery Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Arm Sling Strap Universal Size Adjustable Arm Support Strap For Fracture Sprain Recovery Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-arm-sling-strap-universal-size-adjustable-arm-support-strap-for-fracture-sprain-recovery-price-in-nepal)
 

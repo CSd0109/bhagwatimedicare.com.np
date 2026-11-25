@@ -1,4 +1,4 @@
-# Tynor Mallet Finger Splint Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Mallet Finger Splint Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-mallet-finger-splint-price-in-nepal)
 

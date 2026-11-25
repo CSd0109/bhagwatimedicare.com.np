@@ -1,4 +1,4 @@
-# Flamingo Scrotal Support Adjustable Testicular Support Belt For Hydrocele Varicocele Post Surgery Care Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Scrotal Support Adjustable Testicular Support Belt For Hydrocele Varicocele Post Surgery Care Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-scrotal-support-adjustable-testicular-support-belt-for-hydrocele-varicocele-post-surgery-care-price-in-nepal)
 

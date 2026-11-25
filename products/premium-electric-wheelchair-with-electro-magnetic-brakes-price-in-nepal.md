@@ -1,4 +1,4 @@
-# Premium Electric Wheelchair With Electro Magnetic Brakes Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Premium Electric Wheelchair With Electro Magnetic Brakes Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/premium-electric-wheelchair-with-electro-magnetic-brakes-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Deluxe Quality Lister Bandage Scissor 55 Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Deluxe Quality Lister Bandage Scissor 55 Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/deluxe-quality-lister-bandage-scissor-55-price-in-nepal)
 

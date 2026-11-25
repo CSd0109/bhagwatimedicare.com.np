@@ -1,4 +1,4 @@
-# Commode Chair Sai Life Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Commode Chair Sai Life Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/commode-chair-sai-life-price-in-nepal)
 

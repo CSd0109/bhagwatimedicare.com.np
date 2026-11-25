@@ -1,4 +1,4 @@
-# Tynor Ls Belt Lumbopore Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Ls Belt Lumbopore Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-ls-belt-lumbopore-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Kinesiology Tape Elastic Sports Physio Tape For Muscle Support Pain Relief 5cm X 5m Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Kinesiology Tape Elastic Sports Physio Tape For Muscle Support Pain Relief 5cm X 5m Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/kinesiology-tape-elastic-sports-physio-tape-for-muscle-support-pain-relief-5cm-x-5m-price-in-nepal)
 

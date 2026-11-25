@@ -1,4 +1,4 @@
-# Exanovo Aneroid Blood Pressure Monitor Kit Manual Sphygmomanometer With Adult Cuff Stethoscope Carry Case Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Exanovo Aneroid Blood Pressure Monitor Kit Manual Sphygmomanometer With Adult Cuff Stethoscope Carry Case Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/exanovo-aneroid-blood-pressure-monitor-kit-manual-sphygmomanometer-with-adult-cuff-stethoscope-carry-case-price-in-nepal)
 

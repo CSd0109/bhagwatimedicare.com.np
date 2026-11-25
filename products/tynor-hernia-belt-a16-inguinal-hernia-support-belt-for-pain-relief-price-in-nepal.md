@@ -1,4 +1,4 @@
-# Tynor Hernia Belt A16 Inguinal Hernia Support Belt For Pain Relief Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Hernia Belt A16 Inguinal Hernia Support Belt For Pain Relief Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-hernia-belt-a16-inguinal-hernia-support-belt-for-pain-relief-price-in-nepal)
 

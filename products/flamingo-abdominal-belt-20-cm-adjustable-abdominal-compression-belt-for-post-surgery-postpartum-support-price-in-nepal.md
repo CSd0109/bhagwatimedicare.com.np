@@ -1,4 +1,4 @@
-# Flamingo Abdominal Belt 20 Cm Adjustable Abdominal Compression Belt For Post Surgery Postpartum Support Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Abdominal Belt 20 Cm Adjustable Abdominal Compression Belt For Post Surgery Postpartum Support Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-abdominal-belt-20-cm-adjustable-abdominal-compression-belt-for-post-surgery-postpartum-support-price-in-nepal)
 

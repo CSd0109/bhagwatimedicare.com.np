@@ -1,4 +1,4 @@
-# 3m Reusable Ear Plugs Noise Reduction Hearing Protection For Sleeping Studying Travel Work Industrial Safety Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# 3m Reusable Ear Plugs Noise Reduction Hearing Protection For Sleeping Studying Travel Work Industrial Safety Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/3m-reusable-ear-plugs-noise-reduction-hearing-protection-for-sleeping-studying-travel-work-industrial-safety-price-in-nepal)
 

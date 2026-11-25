@@ -1,4 +1,4 @@
-# Digital Pen Type Ph Meter For Water Testing Portable Water Quality Tester With Calibration Solution For Drinking Water Aquarium Hydroponics Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Digital Pen Type Ph Meter For Water Testing Portable Water Quality Tester With Calibration Solution For Drinking Water Aquarium Hydroponics Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/digital-pen-type-ph-meter-for-water-testing-portable-water-quality-tester-with-calibration-solution-for-drinking-water-aquarium-hydroponics-price-in-nepal)
 

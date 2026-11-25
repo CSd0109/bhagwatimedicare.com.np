@@ -1,4 +1,4 @@
-# Tablet Cutter Pill Splitter With Storage Compartment Precision Medicine Cutter For Tablets Pills Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tablet Cutter Pill Splitter With Storage Compartment Precision Medicine Cutter For Tablets Pills Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tablet-cutter-pill-splitter-with-storage-compartment-precision-medicine-cutter-for-tablets-pills-price-in-nepal)
 

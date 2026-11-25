@@ -1,4 +1,4 @@
-# Medical Knee Hammer Reflex Hammer For Neurological Examination Doctor Diagnostic Tool Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Medical Knee Hammer Reflex Hammer For Neurological Examination Doctor Diagnostic Tool Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/medical-knee-hammer-reflex-hammer-for-neurological-examination-doctor-diagnostic-tool-price-in-nepal)
 

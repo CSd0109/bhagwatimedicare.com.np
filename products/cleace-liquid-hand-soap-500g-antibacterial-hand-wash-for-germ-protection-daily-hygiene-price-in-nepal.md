@@ -1,4 +1,4 @@
-# Cleace Liquid Hand Soap 500g Antibacterial Hand Wash For Germ Protection Daily Hygiene Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Cleace Liquid Hand Soap 500g Antibacterial Hand Wash For Germ Protection Daily Hygiene Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/cleace-liquid-hand-soap-500g-antibacterial-hand-wash-for-germ-protection-daily-hygiene-price-in-nepal)
 

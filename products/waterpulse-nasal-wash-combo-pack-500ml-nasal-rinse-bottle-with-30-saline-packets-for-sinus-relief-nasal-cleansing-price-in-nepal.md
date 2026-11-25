@@ -1,4 +1,4 @@
-# Waterpulse Nasal Wash Combo Pack 500ml Nasal Rinse Bottle With 30 Saline Packets For Sinus Relief Nasal Cleansing Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Waterpulse Nasal Wash Combo Pack 500ml Nasal Rinse Bottle With 30 Saline Packets For Sinus Relief Nasal Cleansing Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/waterpulse-nasal-wash-combo-pack-500ml-nasal-rinse-bottle-with-30-saline-packets-for-sinus-relief-nasal-cleansing-price-in-nepal)
 

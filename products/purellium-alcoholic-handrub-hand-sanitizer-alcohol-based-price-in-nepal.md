@@ -1,4 +1,4 @@
-# Purellium Alcoholic Handrub Hand Sanitizer Alcohol Based Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Purellium Alcoholic Handrub Hand Sanitizer Alcohol Based Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/purellium-alcoholic-handrub-hand-sanitizer-alcohol-based-price-in-nepal)
 

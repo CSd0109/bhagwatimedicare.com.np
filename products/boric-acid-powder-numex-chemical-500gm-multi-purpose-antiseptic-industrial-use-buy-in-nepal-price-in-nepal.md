@@ -1,4 +1,4 @@
-# Boric Acid Powder Numex Chemical 500gm Multi Purpose Antiseptic Industrial Use Buy In Nepal Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Boric Acid Powder Numex Chemical 500gm Multi Purpose Antiseptic Industrial Use Buy In Nepal Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/boric-acid-powder-numex-chemical-500gm-multi-purpose-antiseptic-industrial-use-buy-in-nepal-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# 0 Customization Scrub Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# 0 Customization Scrub Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/0-customization-scrub-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Med E Move Wrist Support Double Lock Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Med E Move Wrist Support Double Lock Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/med-e-move-wrist-support-double-lock-price-in-nepal)
 

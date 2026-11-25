@@ -1,4 +1,4 @@
-# Omron Hem8712 Automatic Blood Pressure Monitor Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Omron Hem8712 Automatic Blood Pressure Monitor Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/omron-hem8712-automatic-blood-pressure-monitor-price-in-nepal)
 

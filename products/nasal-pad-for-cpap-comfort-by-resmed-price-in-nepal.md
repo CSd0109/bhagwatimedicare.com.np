@@ -1,4 +1,4 @@
-# Nasal Pad For Cpap Comfort By Resmed Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Nasal Pad For Cpap Comfort By Resmed Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/nasal-pad-for-cpap-comfort-by-resmed-price-in-nepal)
 

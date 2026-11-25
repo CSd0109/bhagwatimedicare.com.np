@@ -1,4 +1,4 @@
-# Simba Baby Sensitive Aloe Chamomile Baby Wipes Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Simba Baby Sensitive Aloe Chamomile Baby Wipes Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/simba-baby-sensitive-aloe-chamomile-baby-wipes-price-in-nepal)
 

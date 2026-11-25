@@ -1,4 +1,4 @@
-# Flamingo Back Rest Ergonomic Orthopedic Back Support Cushion For Sitting Posture Correction Lower Back Pain Relief Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Back Rest Ergonomic Orthopedic Back Support Cushion For Sitting Posture Correction Lower Back Pain Relief Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-back-rest-ergonomic-orthopedic-back-support-cushion-for-sitting-posture-correction-lower-back-pain-relief-price-in-nepal)
 

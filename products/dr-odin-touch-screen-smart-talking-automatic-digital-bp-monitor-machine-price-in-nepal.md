@@ -1,4 +1,4 @@
-# Dr Odin Touch Screen Smart Talking Automatic Digital Bp Monitor Machine Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Dr Odin Touch Screen Smart Talking Automatic Digital Bp Monitor Machine Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/dr-odin-touch-screen-smart-talking-automatic-digital-bp-monitor-machine-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Cotton Earbudshygienic Double Head Ear Cleaning Buds Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Cotton Earbudshygienic Double Head Ear Cleaning Buds Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/cotton-earbudshygienic-double-head-ear-cleaning-buds-price-in-nepal)
 

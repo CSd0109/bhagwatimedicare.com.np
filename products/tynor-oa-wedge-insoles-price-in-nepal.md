@@ -1,4 +1,4 @@
-# Tynor Oa Wedge Insoles Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Oa Wedge Insoles Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-oa-wedge-insoles-price-in-nepal)
 

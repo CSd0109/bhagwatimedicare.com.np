@@ -1,4 +1,4 @@
-# Sinocare Automatic Digital Blood Pressure Monitor For Upper Arm Accurate Bp Machine With Large Display 22 42cm Cuff Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Sinocare Automatic Digital Blood Pressure Monitor For Upper Arm Accurate Bp Machine With Large Display 22 42cm Cuff Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/sinocare-automatic-digital-blood-pressure-monitor-for-upper-arm-accurate-bp-machine-with-large-display-22-42cm-cuff-price-in-nepal)
 

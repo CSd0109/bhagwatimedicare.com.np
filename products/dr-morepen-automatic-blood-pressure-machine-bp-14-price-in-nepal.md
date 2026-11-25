@@ -1,4 +1,4 @@
-# Dr Morepen Automatic Blood Pressure Machine Bp 14 Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Dr Morepen Automatic Blood Pressure Machine Bp 14 Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/dr-morepen-automatic-blood-pressure-machine-bp-14-price-in-nepal)
 

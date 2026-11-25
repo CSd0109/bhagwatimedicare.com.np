@@ -1,4 +1,4 @@
-# Adjustable Hand Gripper With Counter Hand Grip Strength Trainer For Finger Wrist Forearm Exercise 560kg Resistance Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Adjustable Hand Gripper With Counter Hand Grip Strength Trainer For Finger Wrist Forearm Exercise 560kg Resistance Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/adjustable-hand-gripper-with-counter-hand-grip-strength-trainer-for-finger-wrist-forearm-exercise-560kg-resistance-price-in-nepal)
 

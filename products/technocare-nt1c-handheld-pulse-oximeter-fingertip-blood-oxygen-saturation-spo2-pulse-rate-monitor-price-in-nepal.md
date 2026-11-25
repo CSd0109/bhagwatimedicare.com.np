@@ -1,4 +1,4 @@
-# Technocare Nt1c Handheld Pulse Oximeter Fingertip Blood Oxygen Saturation Spo2 Pulse Rate Monitor Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Technocare Nt1c Handheld Pulse Oximeter Fingertip Blood Oxygen Saturation Spo2 Pulse Rate Monitor Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/technocare-nt1c-handheld-pulse-oximeter-fingertip-blood-oxygen-saturation-spo2-pulse-rate-monitor-price-in-nepal)
 

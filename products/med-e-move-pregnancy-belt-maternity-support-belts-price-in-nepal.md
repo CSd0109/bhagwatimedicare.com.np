@@ -1,4 +1,4 @@
-# Med E Move Pregnancy Belt Maternity Support Belts Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Med E Move Pregnancy Belt Maternity Support Belts Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/med-e-move-pregnancy-belt-maternity-support-belts-price-in-nepal)
 

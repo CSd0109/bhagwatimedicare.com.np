@@ -1,4 +1,4 @@
-# Mede Move Lumbo Sacral Support Back Support Belt Adjustable Lower Back Support Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Mede Move Lumbo Sacral Support Back Support Belt Adjustable Lower Back Support Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/mede-move-lumbo-sacral-support-back-support-belt-adjustable-lower-back-support-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Med E Move Hinged Knee Wrap Neoprene Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Med E Move Hinged Knee Wrap Neoprene Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/med-e-move-hinged-knee-wrap-neoprene-price-in-nepal)
 

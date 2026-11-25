@@ -1,4 +1,4 @@
-# Fine Scissor Straight 5 Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Fine Scissor Straight 5 Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/fine-scissor-straight-5-price-in-nepal)
 

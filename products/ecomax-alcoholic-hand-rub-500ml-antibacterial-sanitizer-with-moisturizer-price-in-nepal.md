@@ -1,4 +1,4 @@
-# Ecomax Alcoholic Hand Rub 500ml Antibacterial Sanitizer With Moisturizer Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Ecomax Alcoholic Hand Rub 500ml Antibacterial Sanitizer With Moisturizer Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/ecomax-alcoholic-hand-rub-500ml-antibacterial-sanitizer-with-moisturizer-price-in-nepal)
 

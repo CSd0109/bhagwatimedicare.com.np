@@ -1,4 +1,4 @@
-# Flamingo Eco Frame Belt Heavy Duty Lumbar Support Belt For Lower Back Pain Spine Stabilization Industrial Use Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Eco Frame Belt Heavy Duty Lumbar Support Belt For Lower Back Pain Spine Stabilization Industrial Use Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-eco-frame-belt-heavy-duty-lumbar-support-belt-for-lower-back-pain-spine-stabilization-industrial-use-price-in-nepal)
 

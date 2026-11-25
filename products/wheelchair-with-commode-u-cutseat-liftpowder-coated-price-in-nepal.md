@@ -1,4 +1,4 @@
-# Wheelchair With Commode U Cutseat Liftpowder Coated Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Wheelchair With Commode U Cutseat Liftpowder Coated Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/wheelchair-with-commode-u-cutseat-liftpowder-coated-price-in-nepal)
 

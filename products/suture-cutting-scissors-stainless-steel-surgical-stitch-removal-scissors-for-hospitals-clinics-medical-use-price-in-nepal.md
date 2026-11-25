@@ -1,4 +1,4 @@
-# Suture Cutting Scissors Stainless Steel Surgical Stitch Removal Scissors For Hospitals Clinics Medical Use Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Suture Cutting Scissors Stainless Steel Surgical Stitch Removal Scissors For Hospitals Clinics Medical Use Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/suture-cutting-scissors-stainless-steel-surgical-stitch-removal-scissors-for-hospitals-clinics-medical-use-price-in-nepal)
 

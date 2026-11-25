@@ -1,4 +1,4 @@
-# Flamingo Hard Cervical Collar Rigid Neck Support Brace For Spine Immobilization Pain Relief Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Hard Cervical Collar Rigid Neck Support Brace For Spine Immobilization Pain Relief Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-hard-cervical-collar-rigid-neck-support-brace-for-spine-immobilization-pain-relief-price-in-nepal)
 

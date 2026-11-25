@@ -1,4 +1,4 @@
-# Tynor Knee Wrap Hinged Neo Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Knee Wrap Hinged Neo Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-knee-wrap-hinged-neo-price-in-nepal)
 

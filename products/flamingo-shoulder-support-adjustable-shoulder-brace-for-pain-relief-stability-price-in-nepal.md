@@ -1,4 +1,4 @@
-# Flamingo Shoulder Support Adjustable Shoulder Brace For Pain Relief Stability Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Shoulder Support Adjustable Shoulder Brace For Pain Relief Stability Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-shoulder-support-adjustable-shoulder-brace-for-pain-relief-stability-price-in-nepal)
 

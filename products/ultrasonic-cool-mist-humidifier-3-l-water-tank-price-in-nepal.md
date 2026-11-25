@@ -1,4 +1,4 @@
-# Ultrasonic Cool Mist Humidifier 3 L Water Tank Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Ultrasonic Cool Mist Humidifier 3 L Water Tank Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/ultrasonic-cool-mist-humidifier-3-l-water-tank-price-in-nepal)
 

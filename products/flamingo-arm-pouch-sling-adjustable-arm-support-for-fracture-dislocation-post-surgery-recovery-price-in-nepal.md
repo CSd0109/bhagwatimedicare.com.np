@@ -1,4 +1,4 @@
-# Flamingo Arm Pouch Sling Adjustable Arm Support For Fracture Dislocation Post Surgery Recovery Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Arm Pouch Sling Adjustable Arm Support For Fracture Dislocation Post Surgery Recovery Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-arm-pouch-sling-adjustable-arm-support-for-fracture-dislocation-post-surgery-recovery-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Flamingo Back Comfort Belt Adjustable Lumbar Support Belt For Lower Back Pain Relief Muscle Strain Posture Support Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Back Comfort Belt Adjustable Lumbar Support Belt For Lower Back Pain Relief Muscle Strain Posture Support Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-back-comfort-belt-adjustable-lumbar-support-belt-for-lower-back-pain-relief-muscle-strain-posture-support-price-in-nepal)
 

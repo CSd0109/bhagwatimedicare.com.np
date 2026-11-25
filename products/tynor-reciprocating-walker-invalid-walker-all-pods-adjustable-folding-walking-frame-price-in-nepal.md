@@ -1,4 +1,4 @@
-# Tynor Reciprocating Walker Invalid Walker All Pods Adjustable Folding Walking Frame Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Reciprocating Walker Invalid Walker All Pods Adjustable Folding Walking Frame Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-reciprocating-walker-invalid-walker-all-pods-adjustable-folding-walking-frame-price-in-nepal)
 

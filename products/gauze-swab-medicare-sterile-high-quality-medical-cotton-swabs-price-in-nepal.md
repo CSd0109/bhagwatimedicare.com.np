@@ -1,4 +1,4 @@
-# Gauze Swab Medicare Sterile High Quality Medical Cotton Swabs Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Gauze Swab Medicare Sterile High Quality Medical Cotton Swabs Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/gauze-swab-medicare-sterile-high-quality-medical-cotton-swabs-price-in-nepal)
 

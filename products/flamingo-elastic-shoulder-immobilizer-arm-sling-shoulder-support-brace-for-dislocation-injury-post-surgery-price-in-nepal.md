@@ -1,4 +1,4 @@
-# Flamingo Elastic Shoulder Immobilizer Arm Sling Shoulder Support Brace For Dislocation Injury Post Surgery Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Elastic Shoulder Immobilizer Arm Sling Shoulder Support Brace For Dislocation Injury Post Surgery Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-elastic-shoulder-immobilizer-arm-sling-shoulder-support-brace-for-dislocation-injury-post-surgery-price-in-nepal)
 

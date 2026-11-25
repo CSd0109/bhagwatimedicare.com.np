@@ -1,4 +1,4 @@
-# Accompanying Chair Bed Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Accompanying Chair Bed Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/accompanying-chair-bed-price-in-nepal)
 

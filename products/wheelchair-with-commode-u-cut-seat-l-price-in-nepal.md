@@ -1,4 +1,4 @@
-# Wheelchair With Commode U Cut Seat L Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Wheelchair With Commode U Cut Seat L Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/wheelchair-with-commode-u-cut-seat-l-price-in-nepal)
 

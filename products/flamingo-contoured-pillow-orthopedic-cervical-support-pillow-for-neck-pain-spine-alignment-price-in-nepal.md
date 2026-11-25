@@ -1,4 +1,4 @@
-# Flamingo Contoured Pillow Orthopedic Cervical Support Pillow For Neck Pain Spine Alignment Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Contoured Pillow Orthopedic Cervical Support Pillow For Neck Pain Spine Alignment Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-contoured-pillow-orthopedic-cervical-support-pillow-for-neck-pain-spine-alignment-price-in-nepal)
 

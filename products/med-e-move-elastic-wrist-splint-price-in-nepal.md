@@ -1,4 +1,4 @@
-# Med E Move Elastic Wrist Splint Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Med E Move Elastic Wrist Splint Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/med-e-move-elastic-wrist-splint-price-in-nepal)
 

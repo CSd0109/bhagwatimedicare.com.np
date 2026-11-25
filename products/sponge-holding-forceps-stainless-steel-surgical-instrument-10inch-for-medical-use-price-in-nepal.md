@@ -1,4 +1,4 @@
-# Sponge Holding Forceps Stainless Steel Surgical Instrument 10inch For Medical Use Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Sponge Holding Forceps Stainless Steel Surgical Instrument 10inch For Medical Use Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/sponge-holding-forceps-stainless-steel-surgical-instrument-10inch-for-medical-use-price-in-nepal)
 

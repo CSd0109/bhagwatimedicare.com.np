@@ -1,4 +1,4 @@
-# Artery Forceps Curved 6 Inch Stainless Steel Surgical Hemostatic Forceps For General Surgery Medical Procedures Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Artery Forceps Curved 6 Inch Stainless Steel Surgical Hemostatic Forceps For General Surgery Medical Procedures Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/artery-forceps-curved-6-inch-stainless-steel-surgical-hemostatic-forceps-for-general-surgery-medical-procedures-price-in-nepal)
 

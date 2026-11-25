@@ -1,4 +1,4 @@
-# Tynor Bed Back Rest Back Rest Bed Chair For Comfort Support For Reading Relaxation Foldable Portable Universal Size 1 Unit Grey Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Bed Back Rest Back Rest Bed Chair For Comfort Support For Reading Relaxation Foldable Portable Universal Size 1 Unit Grey Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-bed-back-rest-back-rest-bed-chair-for-comfort-support-for-reading-relaxation-foldable-portable-universal-size-1-unit-grey-price-in-nepal)
 

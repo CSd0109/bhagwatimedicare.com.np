@@ -1,4 +1,4 @@
-# Premium Basic Wheelchair Chromepowder Coated Black Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Premium Basic Wheelchair Chromepowder Coated Black Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/premium-basic-wheelchair-chromepowder-coated-black-price-in-nepal)
 

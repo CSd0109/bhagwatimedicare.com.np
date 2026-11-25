@@ -1,4 +1,4 @@
-# Med E Move Knee Cap With Open Patella Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Med E Move Knee Cap With Open Patella Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/med-e-move-knee-cap-with-open-patella-price-in-nepal)
 

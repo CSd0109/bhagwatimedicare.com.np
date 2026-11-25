@@ -1,4 +1,4 @@
-# Oxymed 1l Single Jar Suction Machine Portable Phlegm Suction Unit For Home Hospital Use Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Oxymed 1l Single Jar Suction Machine Portable Phlegm Suction Unit For Home Hospital Use Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/oxymed-1l-single-jar-suction-machine-portable-phlegm-suction-unit-for-home-hospital-use-price-in-nepal)
 

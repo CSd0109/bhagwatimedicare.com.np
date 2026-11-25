@@ -1,4 +1,4 @@
-# Flamingo Palm Brace Elastic Palm Wrist Support For Pain Relief Sports Injury Hand Stability Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Palm Brace Elastic Palm Wrist Support For Pain Relief Sports Injury Hand Stability Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-palm-brace-elastic-palm-wrist-support-for-pain-relief-sports-injury-hand-stability-price-in-nepal)
 

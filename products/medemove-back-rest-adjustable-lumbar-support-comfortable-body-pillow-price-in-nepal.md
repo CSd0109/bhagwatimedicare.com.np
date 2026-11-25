@@ -1,4 +1,4 @@
-# Medemove Back Rest Adjustable Lumbar Support Comfortable Body Pillow Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Medemove Back Rest Adjustable Lumbar Support Comfortable Body Pillow Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/medemove-back-rest-adjustable-lumbar-support-comfortable-body-pillow-price-in-nepal)
 

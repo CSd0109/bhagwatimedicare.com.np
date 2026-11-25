@@ -1,4 +1,4 @@
-# Flamingo Maternity Belt Adjustable Pregnancy Support Belt For Back Abdomen Pelvic Pain Relief Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Maternity Belt Adjustable Pregnancy Support Belt For Back Abdomen Pelvic Pain Relief Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-maternity-belt-adjustable-pregnancy-support-belt-for-back-abdomen-pelvic-pain-relief-price-in-nepal)
 

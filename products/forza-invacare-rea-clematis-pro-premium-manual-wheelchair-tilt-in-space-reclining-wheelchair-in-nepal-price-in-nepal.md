@@ -1,4 +1,4 @@
-# Forza Invacare Rea Clematis Pro Premium Manual Wheelchair Tilt In Space Reclining Wheelchair In Nepal Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Forza Invacare Rea Clematis Pro Premium Manual Wheelchair Tilt In Space Reclining Wheelchair In Nepal Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/forza-invacare-rea-clematis-pro-premium-manual-wheelchair-tilt-in-space-reclining-wheelchair-in-nepal-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Reclining Electric Wheelchair Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Reclining Electric Wheelchair Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/reclining-electric-wheelchair-price-in-nepal)
 

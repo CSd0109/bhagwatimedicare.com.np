@@ -1,4 +1,4 @@
-# Tynor Taylors Brace A13 Spinal Support Belt For Thoracic Lumbar Posture Correction Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Taylors Brace A13 Spinal Support Belt For Thoracic Lumbar Posture Correction Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-taylors-brace-a13-spinal-support-belt-for-thoracic-lumbar-posture-correction-price-in-nepal)
 

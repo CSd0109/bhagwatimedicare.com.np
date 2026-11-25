@@ -1,4 +1,4 @@
-# Easycare Ec2016 German Tech Radiation Free High Performance Intelligent Dynamic Detection With Low Power Indicator Fetal Doppler Machine With High Sensitivity Probe Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Easycare Ec2016 German Tech Radiation Free High Performance Intelligent Dynamic Detection With Low Power Indicator Fetal Doppler Machine With High Sensitivity Probe Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/easycare-ec2016-german-tech-radiation-free-high-performance-intelligent-dynamic-detection-with-low-power-indicator-fetal-doppler-machine-with-high-sensitivity-probe-price-in-nepal)
 

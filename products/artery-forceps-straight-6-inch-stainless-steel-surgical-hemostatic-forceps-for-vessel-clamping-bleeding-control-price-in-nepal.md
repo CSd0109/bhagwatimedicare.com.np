@@ -1,4 +1,4 @@
-# Artery Forceps Straight 6 Inch Stainless Steel Surgical Hemostatic Forceps For Vessel Clamping Bleeding Control Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Artery Forceps Straight 6 Inch Stainless Steel Surgical Hemostatic Forceps For Vessel Clamping Bleeding Control Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/artery-forceps-straight-6-inch-stainless-steel-surgical-hemostatic-forceps-for-vessel-clamping-bleeding-control-price-in-nepal)
 

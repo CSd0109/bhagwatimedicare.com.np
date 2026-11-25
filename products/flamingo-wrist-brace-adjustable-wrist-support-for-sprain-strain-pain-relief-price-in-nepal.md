@@ -1,4 +1,4 @@
-# Flamingo Wrist Brace Adjustable Wrist Support For Sprain Strain Pain Relief Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Wrist Brace Adjustable Wrist Support For Sprain Strain Pain Relief Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-wrist-brace-adjustable-wrist-support-for-sprain-strain-pain-relief-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Flamingo Waist Trimmer Belt Adjustable Slimming Waist Support Belt For Workout Sweating Back Support Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Waist Trimmer Belt Adjustable Slimming Waist Support Belt For Workout Sweating Back Support Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-waist-trimmer-belt-adjustable-slimming-waist-support-belt-for-workout-sweating-back-support-price-in-nepal)
 

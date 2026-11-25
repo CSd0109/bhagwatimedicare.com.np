@@ -1,4 +1,4 @@
-# Portable Folding Anti Skid Commode Chair With Arm Rest Pot Patient Toilet Chair For Elderly Handicap Use Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Portable Folding Anti Skid Commode Chair With Arm Rest Pot Patient Toilet Chair For Elderly Handicap Use Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/portable-folding-anti-skid-commode-chair-with-arm-rest-pot-patient-toilet-chair-for-elderly-handicap-use-price-in-nepal)
 

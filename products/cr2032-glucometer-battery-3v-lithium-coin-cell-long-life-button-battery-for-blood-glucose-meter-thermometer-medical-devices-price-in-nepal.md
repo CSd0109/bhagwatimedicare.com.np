@@ -1,4 +1,4 @@
-# Cr2032 Glucometer Battery 3v Lithium Coin Cell Long Life Button Battery For Blood Glucose Meter Thermometer Medical Devices Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Cr2032 Glucometer Battery 3v Lithium Coin Cell Long Life Button Battery For Blood Glucose Meter Thermometer Medical Devices Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/cr2032-glucometer-battery-3v-lithium-coin-cell-long-life-button-battery-for-blood-glucose-meter-thermometer-medical-devices-price-in-nepal)
 

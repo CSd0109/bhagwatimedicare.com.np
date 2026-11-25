@@ -1,4 +1,4 @@
-# Premium Facial Tissue 100 Pulls 2 Ply Soft Tissue Paper For Daily Use Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Premium Facial Tissue 100 Pulls 2 Ply Soft Tissue Paper For Daily Use Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/premium-facial-tissue-100-pulls-2-ply-soft-tissue-paper-for-daily-use-price-in-nepal)
 

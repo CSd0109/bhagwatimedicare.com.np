@@ -1,4 +1,4 @@
-# Caresoul Eva Insulin Cool Bag With Constant Temperature Monitoring Portable Insulin Cooler Travel Case For Diabetes Medication Storage Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Caresoul Eva Insulin Cool Bag With Constant Temperature Monitoring Portable Insulin Cooler Travel Case For Diabetes Medication Storage Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/caresoul-eva-insulin-cool-bag-with-constant-temperature-monitoring-portable-insulin-cooler-travel-case-for-diabetes-medication-storage-price-in-nepal)
 

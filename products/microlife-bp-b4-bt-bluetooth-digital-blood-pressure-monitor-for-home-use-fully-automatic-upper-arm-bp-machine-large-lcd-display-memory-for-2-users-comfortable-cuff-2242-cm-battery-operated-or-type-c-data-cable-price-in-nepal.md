@@ -1,4 +1,4 @@
-# Microlife Bp B4 Bt Bluetooth Digital Blood Pressure Monitor For Home Use Fully Automatic Upper Arm Bp Machine Large Lcd Display Memory For 2 Users Comfortable Cuff 2242 Cm Battery Operated Or Type C Data Cable Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Microlife Bp B4 Bt Bluetooth Digital Blood Pressure Monitor For Home Use Fully Automatic Upper Arm Bp Machine Large Lcd Display Memory For 2 Users Comfortable Cuff 2242 Cm Battery Operated Or Type C Data Cable Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/microlife-bp-b4-bt-bluetooth-digital-blood-pressure-monitor-for-home-use-fully-automatic-upper-arm-bp-machine-large-lcd-display-memory-for-2-users-comfortable-cuff-2242-cm-battery-operated-or-type-c-data-cable-price-in-nepal)
 

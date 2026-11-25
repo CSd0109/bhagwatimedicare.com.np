@@ -1,4 +1,4 @@
-# Flamingo Abdominal Belt 14 Cm Adjustable Abdominal Support Belt For Waist Compression Post Surgery Recovery Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Abdominal Belt 14 Cm Adjustable Abdominal Support Belt For Waist Compression Post Surgery Recovery Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-abdominal-belt-14-cm-adjustable-abdominal-support-belt-for-waist-compression-post-surgery-recovery-price-in-nepal)
 

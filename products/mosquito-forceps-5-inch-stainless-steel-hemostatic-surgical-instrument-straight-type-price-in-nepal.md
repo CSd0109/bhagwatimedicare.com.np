@@ -1,4 +1,4 @@
-# Mosquito Forceps 5 Inch Stainless Steel Hemostatic Surgical Instrument Straight Type Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Mosquito Forceps 5 Inch Stainless Steel Hemostatic Surgical Instrument Straight Type Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/mosquito-forceps-5-inch-stainless-steel-hemostatic-surgical-instrument-straight-type-price-in-nepal)
 

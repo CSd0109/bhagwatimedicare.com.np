@@ -1,4 +1,4 @@
-# Portable Patient Monitor Battery Backup With Ecgspo2nibptempheartbit Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Portable Patient Monitor Battery Backup With Ecgspo2nibptempheartbit Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/portable-patient-monitor-battery-backup-with-ecgspo2nibptempheartbit-price-in-nepal)
 

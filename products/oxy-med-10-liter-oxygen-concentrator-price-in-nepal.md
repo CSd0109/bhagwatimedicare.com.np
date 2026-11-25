@@ -1,4 +1,4 @@
-# Oxy Med 10 Liter Oxygen Concentrator Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Oxy Med 10 Liter Oxygen Concentrator Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/oxy-med-10-liter-oxygen-concentrator-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Reclining Wheelchair With Commode U Cutseat Lift Chromesilver Finish Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Reclining Wheelchair With Commode U Cutseat Lift Chromesilver Finish Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/reclining-wheelchair-with-commode-u-cutseat-lift-chromesilver-finish-price-in-nepal)
 

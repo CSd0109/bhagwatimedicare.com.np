@@ -1,4 +1,4 @@
-# Tynor Tummy Trimmer Abdominal Belt 8 Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Tummy Trimmer Abdominal Belt 8 Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-tummy-trimmer-abdominal-belt-8-price-in-nepal)
 

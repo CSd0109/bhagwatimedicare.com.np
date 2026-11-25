@@ -1,4 +1,4 @@
-# Portable Patient Monitor Battery Backup With Spo2nibptemp Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Portable Patient Monitor Battery Backup With Spo2nibptemp Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/portable-patient-monitor-battery-backup-with-spo2nibptemp-price-in-nepal)
 

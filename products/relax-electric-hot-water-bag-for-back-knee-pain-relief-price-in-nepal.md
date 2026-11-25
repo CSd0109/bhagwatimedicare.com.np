@@ -1,4 +1,4 @@
-# Relax Electric Hot Water Bag For Back Knee Pain Relief Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Relax Electric Hot Water Bag For Back Knee Pain Relief Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/relax-electric-hot-water-bag-for-back-knee-pain-relief-price-in-nepal)
 

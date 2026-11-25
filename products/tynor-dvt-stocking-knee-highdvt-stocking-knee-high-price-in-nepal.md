@@ -1,4 +1,4 @@
-# Tynor Dvt Stocking Knee Highdvt Stocking Knee High Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Dvt Stocking Knee Highdvt Stocking Knee High Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-dvt-stocking-knee-highdvt-stocking-knee-high-price-in-nepal)
 

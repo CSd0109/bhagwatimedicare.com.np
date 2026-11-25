@@ -1,4 +1,4 @@
-# Tynor Cervical Orthosis Philadelphia Ethafoam Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Cervical Orthosis Philadelphia Ethafoam Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-cervical-orthosis-philadelphia-ethafoam-price-in-nepal)
 

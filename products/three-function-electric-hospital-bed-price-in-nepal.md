@@ -1,4 +1,4 @@
-# Three Function Electric Hospital Bed Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Three Function Electric Hospital Bed Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/three-function-electric-hospital-bed-price-in-nepal)
 

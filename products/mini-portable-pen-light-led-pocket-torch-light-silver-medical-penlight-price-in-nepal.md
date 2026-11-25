@@ -1,4 +1,4 @@
-# Mini Portable Pen Light Led Pocket Torch Light Silver Medical Penlight Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Mini Portable Pen Light Led Pocket Torch Light Silver Medical Penlight Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/mini-portable-pen-light-led-pocket-torch-light-silver-medical-penlight-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Cotton Medical Scrub Suit For Doctors V Neck Design Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Cotton Medical Scrub Suit For Doctors V Neck Design Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/cotton-medical-scrub-suit-for-doctors-v-neck-design-price-in-nepal)
 

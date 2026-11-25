@@ -1,4 +1,4 @@
-# 5 Function Electric Patient Beds With Hdpp Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# 5 Function Electric Patient Beds With Hdpp Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/5-function-electric-patient-beds-with-hdpp-price-in-nepal)
 

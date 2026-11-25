@@ -1,4 +1,4 @@
-# Hypoallergenic Microporous Surgical Tape Breathable Medical Adhesive Tape For Wound Dressing Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Hypoallergenic Microporous Surgical Tape Breathable Medical Adhesive Tape For Wound Dressing Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/hypoallergenic-microporous-surgical-tape-breathable-medical-adhesive-tape-for-wound-dressing-price-in-nepal)
 

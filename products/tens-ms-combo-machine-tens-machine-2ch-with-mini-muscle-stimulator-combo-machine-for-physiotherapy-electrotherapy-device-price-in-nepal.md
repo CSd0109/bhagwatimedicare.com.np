@@ -1,4 +1,4 @@
-# Tens Ms Combo Machine Tens Machine 2ch With Mini Muscle Stimulator Combo Machine For Physiotherapy Electrotherapy Device Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tens Ms Combo Machine Tens Machine 2ch With Mini Muscle Stimulator Combo Machine For Physiotherapy Electrotherapy Device Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tens-ms-combo-machine-tens-machine-2ch-with-mini-muscle-stimulator-combo-machine-for-physiotherapy-electrotherapy-device-price-in-nepal)
 

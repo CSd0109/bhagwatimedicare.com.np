@@ -1,4 +1,4 @@
-# Ambitech Electric Suction Machine Portable Medical Suction Unit For Hospital Home Use Single Jar Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Ambitech Electric Suction Machine Portable Medical Suction Unit For Hospital Home Use Single Jar Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/ambitech-electric-suction-machine-portable-medical-suction-unit-for-hospital-home-use-single-jar-price-in-nepal)
 

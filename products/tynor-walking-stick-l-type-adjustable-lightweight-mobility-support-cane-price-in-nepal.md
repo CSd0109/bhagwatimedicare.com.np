@@ -1,4 +1,4 @@
-# Tynor Walking Stick L Type Adjustable Lightweight Mobility Support Cane Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Walking Stick L Type Adjustable Lightweight Mobility Support Cane Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-walking-stick-l-type-adjustable-lightweight-mobility-support-cane-price-in-nepal)
 

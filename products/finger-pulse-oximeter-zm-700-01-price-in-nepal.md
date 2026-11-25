@@ -1,4 +1,4 @@
-# Finger Pulse Oximeter Zm 700 01 Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Finger Pulse Oximeter Zm 700 01 Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/finger-pulse-oximeter-zm-700-01-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Lifeline Absorbent Cotton Wool 300gm Medical Grade Cotton For Wound Care First Aid Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Lifeline Absorbent Cotton Wool 300gm Medical Grade Cotton For Wound Care First Aid Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/lifeline-absorbent-cotton-wool-300gm-medical-grade-cotton-for-wound-care-first-aid-price-in-nepal)
 

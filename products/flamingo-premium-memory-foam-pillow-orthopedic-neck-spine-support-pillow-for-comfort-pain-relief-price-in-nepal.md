@@ -1,4 +1,4 @@
-# Flamingo Premium Memory Foam Pillow Orthopedic Neck Spine Support Pillow For Comfort Pain Relief Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Premium Memory Foam Pillow Orthopedic Neck Spine Support Pillow For Comfort Pain Relief Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-premium-memory-foam-pillow-orthopedic-neck-spine-support-pillow-for-comfort-pain-relief-price-in-nepal)
 

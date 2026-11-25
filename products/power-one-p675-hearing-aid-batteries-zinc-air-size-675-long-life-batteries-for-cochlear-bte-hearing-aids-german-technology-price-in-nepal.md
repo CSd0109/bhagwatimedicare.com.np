@@ -1,4 +1,4 @@
-# Power One P675 Hearing Aid Batteries Zinc Air Size 675 Long Life Batteries For Cochlear Bte Hearing Aids German Technology Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Power One P675 Hearing Aid Batteries Zinc Air Size 675 Long Life Batteries For Cochlear Bte Hearing Aids German Technology Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/power-one-p675-hearing-aid-batteries-zinc-air-size-675-long-life-batteries-for-cochlear-bte-hearing-aids-german-technology-price-in-nepal)
 

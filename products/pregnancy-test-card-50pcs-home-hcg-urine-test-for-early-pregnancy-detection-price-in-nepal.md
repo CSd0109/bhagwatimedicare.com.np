@@ -1,4 +1,4 @@
-# Pregnancy Test Card 50pcs Home Hcg Urine Test For Early Pregnancy Detection Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Pregnancy Test Card 50pcs Home Hcg Urine Test For Early Pregnancy Detection Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/pregnancy-test-card-50pcs-home-hcg-urine-test-for-early-pregnancy-detection-price-in-nepal)
 

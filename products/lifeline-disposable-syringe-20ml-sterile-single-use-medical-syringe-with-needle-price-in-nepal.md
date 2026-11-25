@@ -1,4 +1,4 @@
-# Lifeline Disposable Syringe 20ml Sterile Single Use Medical Syringe With Needle Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Lifeline Disposable Syringe 20ml Sterile Single Use Medical Syringe With Needle Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/lifeline-disposable-syringe-20ml-sterile-single-use-medical-syringe-with-needle-price-in-nepal)
 

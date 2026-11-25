@@ -1,4 +1,4 @@
-# Needle Holder 6 Inch Surgical Suturing Forceps Stainless Steel Medical Instrument Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Needle Holder 6 Inch Surgical Suturing Forceps Stainless Steel Medical Instrument Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/needle-holder-6-inch-surgical-suturing-forceps-stainless-steel-medical-instrument-price-in-nepal)
 

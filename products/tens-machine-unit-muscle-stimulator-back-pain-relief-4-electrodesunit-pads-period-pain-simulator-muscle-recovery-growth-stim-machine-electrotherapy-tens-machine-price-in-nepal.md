@@ -1,4 +1,4 @@
-# Tens Machine Unit Muscle Stimulator Back Pain Relief 4 Electrodesunit Pads Period Pain Simulator Muscle Recovery Growth Stim Machine Electrotherapy Tens Machine Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tens Machine Unit Muscle Stimulator Back Pain Relief 4 Electrodesunit Pads Period Pain Simulator Muscle Recovery Growth Stim Machine Electrotherapy Tens Machine Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tens-machine-unit-muscle-stimulator-back-pain-relief-4-electrodesunit-pads-period-pain-simulator-muscle-recovery-growth-stim-machine-electrotherapy-tens-machine-price-in-nepal)
 

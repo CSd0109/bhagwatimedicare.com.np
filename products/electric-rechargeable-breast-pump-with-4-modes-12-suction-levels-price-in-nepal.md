@@ -1,4 +1,4 @@
-# Electric Rechargeable Breast Pump With 4 Modes 12 Suction Levels Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Electric Rechargeable Breast Pump With 4 Modes 12 Suction Levels Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/electric-rechargeable-breast-pump-with-4-modes-12-suction-levels-price-in-nepal)
 

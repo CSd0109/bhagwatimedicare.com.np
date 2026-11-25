@@ -1,4 +1,4 @@
-# Adjustable Ms Metal Walking Crutches Elbow Sticks For Walking Support Made In India Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Adjustable Ms Metal Walking Crutches Elbow Sticks For Walking Support Made In India Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/adjustable-ms-metal-walking-crutches-elbow-sticks-for-walking-support-made-in-india-price-in-nepal)
 

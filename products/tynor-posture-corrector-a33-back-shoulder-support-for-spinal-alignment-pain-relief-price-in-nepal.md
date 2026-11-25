@@ -1,4 +1,4 @@
-# Tynor Posture Corrector A33 Back Shoulder Support For Spinal Alignment Pain Relief Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Posture Corrector A33 Back Shoulder Support For Spinal Alignment Pain Relief Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-posture-corrector-a33-back-shoulder-support-for-spinal-alignment-pain-relief-price-in-nepal)
 

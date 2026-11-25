@@ -1,4 +1,4 @@
-# Dissecting Forceps Plain Stainless Steel 6 Inch Surgical Tissue Holding Forceps Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Dissecting Forceps Plain Stainless Steel 6 Inch Surgical Tissue Holding Forceps Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/dissecting-forceps-plain-stainless-steel-6-inch-surgical-tissue-holding-forceps-price-in-nepal)
 

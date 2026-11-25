@@ -1,4 +1,4 @@
-# Tynor Compression Stocking Mid Thigh Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Compression Stocking Mid Thigh Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-compression-stocking-mid-thigh-price-in-nepal)
 

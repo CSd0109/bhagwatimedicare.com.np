@@ -1,4 +1,4 @@
-# Flamingo Patient Back Rest Adjustable Foldable Back Support For Bed Sitting Recovery Elderly Care Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Patient Back Rest Adjustable Foldable Back Support For Bed Sitting Recovery Elderly Care Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-patient-back-rest-adjustable-foldable-back-support-for-bed-sitting-recovery-elderly-care-price-in-nepal)
 

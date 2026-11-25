@@ -1,4 +1,4 @@
-# Medical Air Bed Mattress With Air Pump To Prevent Bed Sores Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Medical Air Bed Mattress With Air Pump To Prevent Bed Sores Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/medical-air-bed-mattress-with-air-pump-to-prevent-bed-sores-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Flamingo Posture Brace Adjustable Back Shoulder Support For Posture Correction Pain Relief Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Posture Brace Adjustable Back Shoulder Support For Posture Correction Pain Relief Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-posture-brace-adjustable-back-shoulder-support-for-posture-correction-pain-relief-price-in-nepal)
 

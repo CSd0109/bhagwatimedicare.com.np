@@ -1,4 +1,4 @@
-# Tynor Compression Garment Arm Sleeve Mitten With Thumb Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Compression Garment Arm Sleeve Mitten With Thumb Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-compression-garment-arm-sleeve-mitten-with-thumb-price-in-nepal)
 

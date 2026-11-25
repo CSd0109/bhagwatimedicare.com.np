@@ -1,4 +1,4 @@
-# Tynor Wrist Support With Thumb Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Wrist Support With Thumb Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-wrist-support-with-thumb-price-in-nepal)
 

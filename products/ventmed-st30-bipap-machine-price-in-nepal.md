@@ -1,4 +1,4 @@
-# Ventmed St30 Bipap Machine Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Ventmed St30 Bipap Machine Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/ventmed-st30-bipap-machine-price-in-nepal)
 

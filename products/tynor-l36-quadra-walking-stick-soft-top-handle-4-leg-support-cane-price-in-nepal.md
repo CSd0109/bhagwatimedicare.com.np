@@ -1,4 +1,4 @@
-# Tynor L36 Quadra Walking Stick Soft Top Handle 4 Leg Support Cane Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor L36 Quadra Walking Stick Soft Top Handle 4 Leg Support Cane Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-l36-quadra-walking-stick-soft-top-handle-4-leg-support-cane-price-in-nepal)
 

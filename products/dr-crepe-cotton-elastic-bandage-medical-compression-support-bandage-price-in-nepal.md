@@ -1,4 +1,4 @@
-# Dr Crepe Cotton Elastic Bandage Medical Compression Support Bandage Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Dr Crepe Cotton Elastic Bandage Medical Compression Support Bandage Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/dr-crepe-cotton-elastic-bandage-medical-compression-support-bandage-price-in-nepal)
 

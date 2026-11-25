@@ -1,4 +1,4 @@
-# Dr Trust Vaporizer Facial Steamer Home Spa Steam Inhaler For Skin Care Cold Cough Sinus Relief Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Dr Trust Vaporizer Facial Steamer Home Spa Steam Inhaler For Skin Care Cold Cough Sinus Relief Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/dr-trust-vaporizer-facial-steamer-home-spa-steam-inhaler-for-skin-care-cold-cough-sinus-relief-price-in-nepal)
 

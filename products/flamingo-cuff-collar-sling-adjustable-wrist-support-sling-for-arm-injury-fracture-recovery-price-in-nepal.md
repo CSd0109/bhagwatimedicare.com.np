@@ -1,4 +1,4 @@
-# Flamingo Cuff Collar Sling Adjustable Wrist Support Sling For Arm Injury Fracture Recovery Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Cuff Collar Sling Adjustable Wrist Support Sling For Arm Injury Fracture Recovery Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-cuff-collar-sling-adjustable-wrist-support-sling-for-arm-injury-fracture-recovery-price-in-nepal)
 

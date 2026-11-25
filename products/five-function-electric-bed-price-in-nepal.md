@@ -1,4 +1,4 @@
-# Five Function Electric Bed Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Five Function Electric Bed Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/five-function-electric-bed-price-in-nepal)
 

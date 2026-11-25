@@ -1,4 +1,4 @@
-# Wall Mount Room Thermometer Indoor Temperature Monitor For Home Office Hospital Laboratory Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Wall Mount Room Thermometer Indoor Temperature Monitor For Home Office Hospital Laboratory Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/wall-mount-room-thermometer-indoor-temperature-monitor-for-home-office-hospital-laboratory-price-in-nepal)
 

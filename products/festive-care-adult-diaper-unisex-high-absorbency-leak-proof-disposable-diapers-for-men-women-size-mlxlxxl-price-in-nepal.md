@@ -1,4 +1,4 @@
-# Festive Care Adult Diaper Unisex High Absorbency Leak Proof Disposable Diapers For Men Women Size Mlxlxxl Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Festive Care Adult Diaper Unisex High Absorbency Leak Proof Disposable Diapers For Men Women Size Mlxlxxl Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/festive-care-adult-diaper-unisex-high-absorbency-leak-proof-disposable-diapers-for-men-women-size-mlxlxxl-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Tynor Lumbo Lacepull Brace A29 Adjustable Lumbar Support Belt For Lower Back Pain Spine Stabilization Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Lumbo Lacepull Brace A29 Adjustable Lumbar Support Belt For Lower Back Pain Spine Stabilization Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-lumbo-lacepull-brace-a29-adjustable-lumbar-support-belt-for-lower-back-pain-spine-stabilization-price-in-nepal)
 

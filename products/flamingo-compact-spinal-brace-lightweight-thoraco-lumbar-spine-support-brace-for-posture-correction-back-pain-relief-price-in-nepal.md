@@ -1,4 +1,4 @@
-# Flamingo Compact Spinal Brace Lightweight Thoraco Lumbar Spine Support Brace For Posture Correction Back Pain Relief Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Compact Spinal Brace Lightweight Thoraco Lumbar Spine Support Brace For Posture Correction Back Pain Relief Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-compact-spinal-brace-lightweight-thoraco-lumbar-spine-support-brace-for-posture-correction-back-pain-relief-price-in-nepal)
 

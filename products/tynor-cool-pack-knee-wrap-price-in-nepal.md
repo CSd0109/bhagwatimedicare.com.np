@@ -1,4 +1,4 @@
-# Tynor Cool Pack Knee Wrap Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Cool Pack Knee Wrap Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-cool-pack-knee-wrap-price-in-nepal)
 

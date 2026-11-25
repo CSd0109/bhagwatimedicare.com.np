@@ -1,4 +1,4 @@
-# Stainless Steel Towel Clamp Surgical Instrument For Securing Surgical Drapes Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Stainless Steel Towel Clamp Surgical Instrument For Securing Surgical Drapes Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/stainless-steel-towel-clamp-surgical-instrument-for-securing-surgical-drapes-price-in-nepal)
 

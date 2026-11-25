@@ -1,4 +1,4 @@
-# Flamingo Lumbar Sacro Belt Adjustable Lower Back Support Belt For Pain Relief Spine Stabilization Posture Correction Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Lumbar Sacro Belt Adjustable Lower Back Support Belt For Pain Relief Spine Stabilization Posture Correction Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-lumbar-sacro-belt-adjustable-lower-back-support-belt-for-pain-relief-spine-stabilization-posture-correction-price-in-nepal)
 

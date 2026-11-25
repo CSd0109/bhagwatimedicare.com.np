@@ -1,4 +1,4 @@
-# Cardiac Table Over Bed Table Food Table Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Cardiac Table Over Bed Table Food Table Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/cardiac-table-over-bed-table-food-table-price-in-nepal)
 

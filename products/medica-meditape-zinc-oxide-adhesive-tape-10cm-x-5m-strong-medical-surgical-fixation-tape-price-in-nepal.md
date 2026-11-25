@@ -1,4 +1,4 @@
-# Medica Meditape Zinc Oxide Adhesive Tape 10cm X 5m Strong Medical Surgical Fixation Tape Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Medica Meditape Zinc Oxide Adhesive Tape 10cm X 5m Strong Medical Surgical Fixation Tape Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/medica-meditape-zinc-oxide-adhesive-tape-10cm-x-5m-strong-medical-surgical-fixation-tape-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Premium Facial Tissue 200 Pulls 400 Sheets Soft 2 Ply Tissue Box Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Premium Facial Tissue 200 Pulls 400 Sheets Soft 2 Ply Tissue Box Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/premium-facial-tissue-200-pulls-400-sheets-soft-2-ply-tissue-box-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Absorbent Cotton Wool Ip 100gm 100 Pure Surgical Cotton For Medical First Aid Use Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Absorbent Cotton Wool Ip 100gm 100 Pure Surgical Cotton For Medical First Aid Use Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/absorbent-cotton-wool-ip-100gm-100-pure-surgical-cotton-for-medical-first-aid-use-price-in-nepal)
 

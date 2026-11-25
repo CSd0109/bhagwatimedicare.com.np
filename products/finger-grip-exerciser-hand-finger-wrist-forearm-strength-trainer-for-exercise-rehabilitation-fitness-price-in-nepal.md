@@ -1,4 +1,4 @@
-# Finger Grip Exerciser Hand Finger Wrist Forearm Strength Trainer For Exercise Rehabilitation Fitness Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Finger Grip Exerciser Hand Finger Wrist Forearm Strength Trainer For Exercise Rehabilitation Fitness Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/finger-grip-exerciser-hand-finger-wrist-forearm-strength-trainer-for-exercise-rehabilitation-fitness-price-in-nepal)
 

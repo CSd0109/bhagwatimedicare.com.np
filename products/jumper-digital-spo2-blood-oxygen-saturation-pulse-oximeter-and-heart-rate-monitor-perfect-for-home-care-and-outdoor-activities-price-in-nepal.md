@@ -1,4 +1,4 @@
-# Jumper Digital Spo2 Blood Oxygen Saturation Pulse Oximeter And Heart Rate Monitor Perfect For Home Care And Outdoor Activities Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Jumper Digital Spo2 Blood Oxygen Saturation Pulse Oximeter And Heart Rate Monitor Perfect For Home Care And Outdoor Activities Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/jumper-digital-spo2-blood-oxygen-saturation-pulse-oximeter-and-heart-rate-monitor-perfect-for-home-care-and-outdoor-activities-price-in-nepal)
 

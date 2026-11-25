@@ -1,4 +1,4 @@
-# Power One P312 Hearing Aid Batteries Zinc Air Size 312 Long Life Batteries For Bte Hearing Aids German Technology Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Power One P312 Hearing Aid Batteries Zinc Air Size 312 Long Life Batteries For Bte Hearing Aids German Technology Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/power-one-p312-hearing-aid-batteries-zinc-air-size-312-long-life-batteries-for-bte-hearing-aids-german-technology-price-in-nepal)
 

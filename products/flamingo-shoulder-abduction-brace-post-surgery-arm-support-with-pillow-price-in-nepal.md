@@ -1,4 +1,4 @@
-# Flamingo Shoulder Abduction Brace Post Surgery Arm Support With Pillow Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Shoulder Abduction Brace Post Surgery Arm Support With Pillow Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-shoulder-abduction-brace-post-surgery-arm-support-with-pillow-price-in-nepal)
 

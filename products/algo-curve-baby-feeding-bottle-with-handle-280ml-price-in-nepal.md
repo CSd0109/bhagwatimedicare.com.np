@@ -1,4 +1,4 @@
-# Algo Curve Baby Feeding Bottle With Handle 280ml Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Algo Curve Baby Feeding Bottle With Handle 280ml Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/algo-curve-baby-feeding-bottle-with-handle-280ml-price-in-nepal)
 

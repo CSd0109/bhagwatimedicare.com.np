@@ -1,4 +1,4 @@
-# Autoclave Power Cord Wire Heavy Duty Replacement Electrical Cable For Steam Sterilizer Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Autoclave Power Cord Wire Heavy Duty Replacement Electrical Cable For Steam Sterilizer Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/autoclave-power-cord-wire-heavy-duty-replacement-electrical-cable-for-steam-sterilizer-price-in-nepal)
 

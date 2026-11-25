@@ -1,4 +1,4 @@
-# Tynor Foot Drop Splint With Liner Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Foot Drop Splint With Liner Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-foot-drop-splint-with-liner-price-in-nepal)
 

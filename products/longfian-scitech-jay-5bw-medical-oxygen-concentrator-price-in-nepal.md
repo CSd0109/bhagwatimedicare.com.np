@@ -1,4 +1,4 @@
-# Longfian Scitech Jay 5bw Medical Oxygen Concentrator Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Longfian Scitech Jay 5bw Medical Oxygen Concentrator Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/longfian-scitech-jay-5bw-medical-oxygen-concentrator-price-in-nepal)
 

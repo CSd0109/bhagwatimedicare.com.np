@@ -1,4 +1,4 @@
-# Deluxe Aluminum Wheelchair Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Deluxe Aluminum Wheelchair Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/deluxe-aluminum-wheelchair-price-in-nepal)
 

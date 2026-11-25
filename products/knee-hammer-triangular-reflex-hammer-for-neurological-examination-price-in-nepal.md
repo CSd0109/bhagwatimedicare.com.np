@@ -1,4 +1,4 @@
-# Knee Hammer Triangular Reflex Hammer For Neurological Examination Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Knee Hammer Triangular Reflex Hammer For Neurological Examination Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/knee-hammer-triangular-reflex-hammer-for-neurological-examination-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Technocare Trolley Suction Apparatus Double Jar 225l Surgical Suction Machine For Hospital Use Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Technocare Trolley Suction Apparatus Double Jar 225l Surgical Suction Machine For Hospital Use Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/technocare-trolley-suction-apparatus-double-jar-225l-surgical-suction-machine-for-hospital-use-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Premium Toilet Paper 130gm Per Pack Soft Highly Absorbent Bathroom Tissue Rolls Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Premium Toilet Paper 130gm Per Pack Soft Highly Absorbent Bathroom Tissue Rolls Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/premium-toilet-paper-130gm-per-pack-soft-highly-absorbent-bathroom-tissue-rolls-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Digital Ph Tds Ec Water Quality Tester Pocket Size Water Purity Test Meter For Drinking Water Aquarium Laboratory Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Digital Ph Tds Ec Water Quality Tester Pocket Size Water Purity Test Meter For Drinking Water Aquarium Laboratory Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/digital-ph-tds-ec-water-quality-tester-pocket-size-water-purity-test-meter-for-drinking-water-aquarium-laboratory-price-in-nepal)
 

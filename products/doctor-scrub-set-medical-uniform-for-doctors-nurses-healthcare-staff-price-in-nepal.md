@@ -1,4 +1,4 @@
-# Doctor Scrub Set Medical Uniform For Doctors Nurses Healthcare Staff Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Doctor Scrub Set Medical Uniform For Doctors Nurses Healthcare Staff Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/doctor-scrub-set-medical-uniform-for-doctors-nurses-healthcare-staff-price-in-nepal)
 

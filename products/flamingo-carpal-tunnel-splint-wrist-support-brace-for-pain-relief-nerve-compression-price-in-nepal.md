@@ -1,4 +1,4 @@
-# Flamingo Carpal Tunnel Splint Wrist Support Brace For Pain Relief Nerve Compression Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Carpal Tunnel Splint Wrist Support Brace For Pain Relief Nerve Compression Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-carpal-tunnel-splint-wrist-support-brace-for-pain-relief-nerve-compression-price-in-nepal)
 

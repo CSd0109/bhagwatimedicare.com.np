@@ -1,4 +1,4 @@
-# Mdhl Massage Gun 6 Gear With Hot Cold Therapy Digital Display Touch Sensor For Muscle Relaxation Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Mdhl Massage Gun 6 Gear With Hot Cold Therapy Digital Display Touch Sensor For Muscle Relaxation Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/mdhl-massage-gun-6-gear-with-hot-cold-therapy-digital-display-touch-sensor-for-muscle-relaxation-price-in-nepal)
 

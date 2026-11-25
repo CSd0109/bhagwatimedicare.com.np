@@ -1,4 +1,4 @@
-# Mini Tens 2 Channel Electrotherapy Machine Portable Physiotherapy Device For Pain Relief Muscle Stimulation Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Mini Tens 2 Channel Electrotherapy Machine Portable Physiotherapy Device For Pain Relief Muscle Stimulation Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/mini-tens-2-channel-electrotherapy-machine-portable-physiotherapy-device-for-pain-relief-muscle-stimulation-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Eurecare Ec 2020b Digital Body Weight Scale Electronic Personal Weighing Machine With Lcd Display 180kg Capacity Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Eurecare Ec 2020b Digital Body Weight Scale Electronic Personal Weighing Machine With Lcd Display 180kg Capacity Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/eurecare-ec-2020b-digital-body-weight-scale-electronic-personal-weighing-machine-with-lcd-display-180kg-capacity-price-in-nepal)
 

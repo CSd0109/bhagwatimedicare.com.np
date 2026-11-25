@@ -1,4 +1,4 @@
-# Spirit 5l Antiseptic Disinfectant Solution Bulk Pack Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Spirit 5l Antiseptic Disinfectant Solution Bulk Pack Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/spirit-5l-antiseptic-disinfectant-solution-bulk-pack-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Exercise Resistance Band Fitness Stretch Band For Home Workout Yoga Strength Training Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Exercise Resistance Band Fitness Stretch Band For Home Workout Yoga Strength Training Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/exercise-resistance-band-fitness-stretch-band-for-home-workout-yoga-strength-training-price-in-nepal)
 

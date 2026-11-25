@@ -1,4 +1,4 @@
-# Sejoy Non Contact Infrared Forehead Thermometer For Adults Kids Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Sejoy Non Contact Infrared Forehead Thermometer For Adults Kids Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/sejoy-non-contact-infrared-forehead-thermometer-for-adults-kids-price-in-nepal)
 

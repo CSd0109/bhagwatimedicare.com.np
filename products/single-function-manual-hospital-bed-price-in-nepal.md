@@ -1,4 +1,4 @@
-# Single Function Manual Hospital Bed Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Single Function Manual Hospital Bed Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/single-function-manual-hospital-bed-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Doctor Aneroid Sphygmomanometer Velcro Cuff 500 V With Free Dual Head Stethoscope Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Doctor Aneroid Sphygmomanometer Velcro Cuff 500 V With Free Dual Head Stethoscope Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/doctor-aneroid-sphygmomanometer-velcro-cuff-500-v-with-free-dual-head-stethoscope-price-in-nepal)
 

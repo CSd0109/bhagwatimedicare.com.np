@@ -1,4 +1,4 @@
-# Golden Cherry Pocket Tissue Paper 10 Packets Soft Portable Facial Tissue For Daily Use Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Golden Cherry Pocket Tissue Paper 10 Packets Soft Portable Facial Tissue For Daily Use Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/golden-cherry-pocket-tissue-paper-10-packets-soft-portable-facial-tissue-for-daily-use-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Flamingo Clavicle Brace Shoulder Support For Collarbone Fracture Posture Correction Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Clavicle Brace Shoulder Support For Collarbone Fracture Posture Correction Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-clavicle-brace-shoulder-support-for-collarbone-fracture-posture-correction-price-in-nepal)
 

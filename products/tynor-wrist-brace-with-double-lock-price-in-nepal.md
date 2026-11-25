@@ -1,4 +1,4 @@
-# Tynor Wrist Brace With Double Lock Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Wrist Brace With Double Lock Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-wrist-brace-with-double-lock-price-in-nepal)
 

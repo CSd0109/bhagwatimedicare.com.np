@@ -1,4 +1,4 @@
-# Citric Acid Anhydrous Extrapure 99 78213 500gm Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Citric Acid Anhydrous Extrapure 99 78213 500gm Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/citric-acid-anhydrous-extrapure-99-78213-500gm-price-in-nepal)
 

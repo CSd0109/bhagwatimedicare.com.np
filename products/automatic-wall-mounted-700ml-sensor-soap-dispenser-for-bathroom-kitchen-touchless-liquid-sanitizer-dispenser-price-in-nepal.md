@@ -1,4 +1,4 @@
-# Automatic Wall Mounted 700ml Sensor Soap Dispenser For Bathroom Kitchen Touchless Liquid Sanitizer Dispenser Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Automatic Wall Mounted 700ml Sensor Soap Dispenser For Bathroom Kitchen Touchless Liquid Sanitizer Dispenser Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/automatic-wall-mounted-700ml-sensor-soap-dispenser-for-bathroom-kitchen-touchless-liquid-sanitizer-dispenser-price-in-nepal)
 

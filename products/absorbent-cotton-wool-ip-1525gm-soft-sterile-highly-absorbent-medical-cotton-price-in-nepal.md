@@ -1,4 +1,4 @@
-# Absorbent Cotton Wool Ip 1525gm Soft Sterile Highly Absorbent Medical Cotton Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Absorbent Cotton Wool Ip 1525gm Soft Sterile Highly Absorbent Medical Cotton Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/absorbent-cotton-wool-ip-1525gm-soft-sterile-highly-absorbent-medical-cotton-price-in-nepal)
 

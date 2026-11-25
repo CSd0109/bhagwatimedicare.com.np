@@ -1,4 +1,4 @@
-# Portable 2 Channel Tens Electrotherapy Machine Pain Relief Physiotherapy Device Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Portable 2 Channel Tens Electrotherapy Machine Pain Relief Physiotherapy Device Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/portable-2-channel-tens-electrotherapy-machine-pain-relief-physiotherapy-device-price-in-nepal)
 

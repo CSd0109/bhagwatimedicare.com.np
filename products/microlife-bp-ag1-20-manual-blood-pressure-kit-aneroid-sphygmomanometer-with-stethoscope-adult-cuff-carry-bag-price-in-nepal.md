@@ -1,4 +1,4 @@
-# Microlife Bp Ag1 20 Manual Blood Pressure Kit Aneroid Sphygmomanometer With Stethoscope Adult Cuff Carry Bag Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Microlife Bp Ag1 20 Manual Blood Pressure Kit Aneroid Sphygmomanometer With Stethoscope Adult Cuff Carry Bag Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/microlife-bp-ag1-20-manual-blood-pressure-kit-aneroid-sphygmomanometer-with-stethoscope-adult-cuff-carry-bag-price-in-nepal)
 

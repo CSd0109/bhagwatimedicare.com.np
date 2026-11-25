@@ -1,4 +1,4 @@
-# Flamingo Soft Collar Cushioned Cervical Neck Support Brace For Pain Relief Comfort Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Soft Collar Cushioned Cervical Neck Support Brace For Pain Relief Comfort Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-soft-collar-cushioned-cervical-neck-support-brace-for-pain-relief-comfort-price-in-nepal)
 

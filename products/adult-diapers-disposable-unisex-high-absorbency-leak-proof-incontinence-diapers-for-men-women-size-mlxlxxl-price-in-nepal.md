@@ -1,4 +1,4 @@
-# Adult Diapers Disposable Unisex High Absorbency Leak Proof Incontinence Diapers For Men Women Size Mlxlxxl Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Adult Diapers Disposable Unisex High Absorbency Leak Proof Incontinence Diapers For Men Women Size Mlxlxxl Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/adult-diapers-disposable-unisex-high-absorbency-leak-proof-incontinence-diapers-for-men-women-size-mlxlxxl-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Bmc P2 Nasal Pillows Cpap Mask Sml Fitpack One Pack Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Bmc P2 Nasal Pillows Cpap Mask Sml Fitpack One Pack Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/bmc-p2-nasal-pillows-cpap-mask-sml-fitpack-one-pack-price-in-nepal)
 

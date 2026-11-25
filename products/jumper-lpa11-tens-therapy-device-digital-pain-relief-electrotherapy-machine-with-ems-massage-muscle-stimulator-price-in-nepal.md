@@ -1,4 +1,4 @@
-# Jumper Lpa11 Tens Therapy Device Digital Pain Relief Electrotherapy Machine With Ems Massage Muscle Stimulator Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Jumper Lpa11 Tens Therapy Device Digital Pain Relief Electrotherapy Machine With Ems Massage Muscle Stimulator Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/jumper-lpa11-tens-therapy-device-digital-pain-relief-electrotherapy-machine-with-ems-massage-muscle-stimulator-price-in-nepal)
 

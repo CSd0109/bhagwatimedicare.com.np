@@ -1,4 +1,4 @@
-# Flamingo Pelvic Binder Adjustable Pelvic Support Belt For Fracture Trauma Post Surgery Stabilization Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Pelvic Binder Adjustable Pelvic Support Belt For Fracture Trauma Post Surgery Stabilization Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-pelvic-binder-adjustable-pelvic-support-belt-for-fracture-trauma-post-surgery-stabilization-price-in-nepal)
 

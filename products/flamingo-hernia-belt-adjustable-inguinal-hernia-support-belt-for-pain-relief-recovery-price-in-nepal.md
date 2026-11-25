@@ -1,4 +1,4 @@
-# Flamingo Hernia Belt Adjustable Inguinal Hernia Support Belt For Pain Relief Recovery Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Flamingo Hernia Belt Adjustable Inguinal Hernia Support Belt For Pain Relief Recovery Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/flamingo-hernia-belt-adjustable-inguinal-hernia-support-belt-for-pain-relief-recovery-price-in-nepal)
 

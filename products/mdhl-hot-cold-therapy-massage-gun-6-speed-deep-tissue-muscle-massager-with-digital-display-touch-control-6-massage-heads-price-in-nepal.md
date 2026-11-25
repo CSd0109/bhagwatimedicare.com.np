@@ -1,4 +1,4 @@
-# Mdhl Hot Cold Therapy Massage Gun 6 Speed Deep Tissue Muscle Massager With Digital Display Touch Control 6 Massage Heads Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Mdhl Hot Cold Therapy Massage Gun 6 Speed Deep Tissue Muscle Massager With Digital Display Touch Control 6 Massage Heads Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/mdhl-hot-cold-therapy-massage-gun-6-speed-deep-tissue-muscle-massager-with-digital-display-touch-control-6-massage-heads-price-in-nepal)
 

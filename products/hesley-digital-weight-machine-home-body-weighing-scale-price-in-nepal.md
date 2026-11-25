@@ -1,4 +1,4 @@
-# Hesley Digital Weight Machine Home Body Weighing Scale Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Hesley Digital Weight Machine Home Body Weighing Scale Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/hesley-digital-weight-machine-home-body-weighing-scale-price-in-nepal)
 

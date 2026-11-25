@@ -1,4 +1,4 @@
-# Tynor Ash Brace A12 Hyperextension Brace Spinal Support For Fracture Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Tynor Ash Brace A12 Hyperextension Brace Spinal Support For Fracture Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/tynor-ash-brace-a12-hyperextension-brace-spinal-support-for-fracture-price-in-nepal)
 

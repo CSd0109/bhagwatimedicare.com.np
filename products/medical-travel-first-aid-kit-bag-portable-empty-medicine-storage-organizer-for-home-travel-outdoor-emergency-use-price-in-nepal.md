@@ -1,4 +1,4 @@
-# Medical Travel First Aid Kit Bag Portable Empty Medicine Storage Organizer For Home Travel Outdoor Emergency Use Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Medical Travel First Aid Kit Bag Portable Empty Medicine Storage Organizer For Home Travel Outdoor Emergency Use Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/medical-travel-first-aid-kit-bag-portable-empty-medicine-storage-organizer-for-home-travel-outdoor-emergency-use-price-in-nepal)
 

@@ -1,4 +1,4 @@
-# Florona Hand Sanitizer 5 Liters 75 Ethyl Alcohol With Moisturizer Bulk Pack Price In Nepal - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Florona Hand Sanitizer 5 Liters 75 Ethyl Alcohol With Moisturizer Bulk Pack Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/florona-hand-sanitizer-5-liters-75-ethyl-alcohol-with-moisturizer-bulk-pack-price-in-nepal)
 
