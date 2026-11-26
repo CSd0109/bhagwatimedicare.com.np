@@ -1,7 +1,7 @@
 ---
 title: "Tripureshwor Surgical Market Kathmandu: Wholesale Buying & Price Guide 2026"
 description: "Comprehensive guide to buying surgical instruments, hospital furniture, and ICU medical equipment wholesale in Tripureshwor, Kathmandu. Bhagwati Surgical Nepal."
-date: "2026-11-25"
+date: "2026-11-26"
 author: "Bhagwati Surgical Nepal"
 canonical: "https://www.bhagwatisergical.com/blogs/tripureshwor-surgical-market-wholesale-price-guide"
 keywords: "tripureshwor surgical market wholesale price"
@@ -9,7 +9,7 @@ keywords: "tripureshwor surgical market wholesale price"
 
 # Tripureshwor Surgical Market Kathmandu: Wholesale Buying & Price Guide 2026
 
-*Published on 2026-11-25 by [Bhagwati Surgical Nepal](https://www.bhagwatisergical.com)*
+*Published on 2026-11-26 by [Bhagwati Surgical Nepal](https://www.bhagwatisergical.com)*
 
 <script type="application/ld+json">
 {
@@ -27,8 +27,8 @@ keywords: "tripureshwor surgical market wholesale price"
     "name": "Bhagwati Surgical Nepal",
     "url": "https://www.bhagwatisergical.com"
   },
-  "datePublished": "2026-11-25",
-  "dateModified": "2026-11-25",
+  "datePublished": "2026-11-26",
+  "dateModified": "2026-11-26",
   "mainEntityOfPage": "https://www.bhagwatisergical.com/blogs/tripureshwor-surgical-market-wholesale-price-guide"
 }
 </script>
