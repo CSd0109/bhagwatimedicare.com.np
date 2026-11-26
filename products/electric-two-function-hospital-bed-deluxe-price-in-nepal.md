@@ -1,125 +1,109 @@
-# Electric 2 Function Deluxe Hospital Bed With Remote Control & Mattress - Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Electric 2-Function Deluxe Patient Hospital Bed Price in Nepal | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/electric-two-function-hospital-bed-deluxe-price-in-nepal)
 
 [![Website](https://www.bhagwatimedicare.com.np)](https://www.bhagwatimedicare.com.np/product/electric-two-function-hospital-bed-deluxe-price-in-nepal)
-[![Price](https://img.shields.io/badge/Price-NPR_142,000_(Best_Wholesale)-brightgreen?style=for-the-badge)](https://www.bhagwatimedicare.com.np/product/electric-two-function-hospital-bed-deluxe-price-in-nepal)
+[![Price](https://img.shields.io/badge/Price-NPR_66,000_(Best_Wholesale)-brightgreen?style=for-the-badge)](https://www.bhagwatimedicare.com.np/product/electric-two-function-hospital-bed-deluxe-price-in-nepal)
 [![Delivery](https://img.shields.io/badge/Delivery-2_Hour_Express_Kathmandu-blue?style=for-the-badge)](https://www.bhagwatimedicare.com.np/product/electric-two-function-hospital-bed-deluxe-price-in-nepal)
 [![Warranty](https://img.shields.io/badge/Warranty-100%25_Official_IRD_VAT-orange?style=for-the-badge)](https://www.bhagwatimedicare.com.np/product/electric-two-function-hospital-bed-deluxe-price-in-nepal)
 
 > **Direct Official Link to Buy:** [https://www.bhagwatimedicare.com.np/product/electric-two-function-hospital-bed-deluxe-price-in-nepal](https://www.bhagwatimedicare.com.np/product/electric-two-function-hospital-bed-deluxe-price-in-nepal)  
-> **Direct WhatsApp Order:** [Click to Chat on WhatsApp (+977-9761801046)](https://wa.me/9779761801046?text=Hello%20Bhagwati%20Medicare,%20I%20want%20to%20order%20Electric%202%20Function%20Deluxe%20Hospital%20Bed%20With%20Remote%20Control%20%26%20Mattress)  
-> **24/7 Emergency Medical Hotline:** `+977-9761801046`  
-> **Store Location:** Tripureshwor Medical Market (Opposite Dasharath Stadium Gate), Kathmandu, Nepal
+> **Direct WhatsApp Order:** [Click to Chat on WhatsApp (+977-9761801046)](https://wa.me/9779761801046?text=Namaste%20Bhagwati%20Medicare,%20I%20want%20to%20order%20Electric%202-Function%20Deluxe%20Patient%20Hospital%20Bed%20with%20Remote%20&%20Medical%20Mattress)  
+> **24/7 Emergency Medical Hotline:**   
+> **Showroom & Warehouse:** Tripureshwor Medical Market (Opposite Dasharath Stadium Gate), Kathmandu, Nepal
 
 ---
 
-## 📸 Product Overview & Visuals
+## 📸 Product Overview & Clinical Insights
 
-![Electric 2 Function Deluxe Hospital Bed With Remote Control & Mattress](/bwa_products/electric-two-function-hospital-bed-deluxe/primary_image.jpeg)
+![Electric 2-Function Deluxe Patient Hospital Bed with Remote & Medical Mattress](https://www.bhagwatimedicare.com.np/logo.jpg)
 
-**Electric 2 Function Deluxe Hospital Bed With Remote Control & Mattress** is Nepal's top-rated healthcare supply solution distributed by **Bhagwati Medicare Pvt. Ltd.** (नेपालको #१ मेडिकल सप्लायर). We provide direct importer factory pricing, guaranteed 100% genuine medical equipment, and 2-hour emergency bedside delivery throughout Kathmandu, Lalitpur, and Bhaktapur, as well as fast courier dispatch across all 77 districts of Nepal.
+**Electric 2-Function Deluxe Patient Hospital Bed with Remote & Medical Mattress** is Nepal's most reliable and certified healthcare equipment solution distributed by **Bhagwati Medicare Pvt. Ltd.** (नेपालको #१ आधिकारिक मेडिकल सप्लायर).
+
+The Electric 2-Function Deluxe Patient Hospital Bed is the ideal motorized recovery solution for home health nursing, orthopedic rehabilitation, stroke recovery, and general hospital wards in Nepal. Utilizing twin electric linear actuators controlled by a patient hand remote, it allows effortless elevation of the upper body (0-75°) for feeding, reading, and breathing comfort, as well as elevation of the knee rest (0-40°) to reduce swelling and promote circulation. Featuring collapsible aircraft-grade aluminum alloy side rails, detachable ABS head/foot panels, and high-strength locking wheels.
 
 ---
 
-## 💰 Official Pricing & Purchase Options in Nepal
+## 💰 Official Pricing, Wholesale & Rental in Nepal
 
-| Service / Option | Official Rate (NPR) | Availability | Fast Action Link |
+| Option / Package | Official Rate (NPR) | Stock Status | Direct Action |
 | :--- | :--- | :--- | :--- |
-| **Direct Purchase (Brand New)** | **NPR 142,000** (VAT Inclusive) | In Stock (Immediate Dispatch) | [Buy Now Online](https://www.bhagwatimedicare.com.np/product/electric-two-function-hospital-bed-deluxe-price-in-nepal) |
-| **Monthly Rental (24/7 Homecare)** | **NPR 12,000 / Month** | Ready for Bedside Setup | [Book Rental Unit](https://www.bhagwatimedicare.com.np/product-rent) |
-| **Weekly Rental** | **NPR 3,500 / Week** | Available | [Rent for 1 Week](https://www.bhagwatimedicare.com.np/product-rent) |
-
----
-
-## 🔍 Key Features & Clinical Benefits
-- **Full Electric Dual Motor Control: Backrest and Legrest motorized adjustment**
-- **Ergonomic Handheld Remote Controller with one-touch position adjustment**
-- **Collapsible aluminum alloy side guard rails for utmost patient safety**
-- **High-durability perforated steel mattress platform with anti-rust epoxy coating**
-- **Includes luxury medical mattress, adjustable stainless steel IV drip pole, and silent lockable casters**
-- **Emergency manual backup crank system included in case of power failure**
-
-- **100% Genuine Importer Warranty:** Backed by authorized brand service and official Inland Revenue Department (IRD) VAT invoice (PAN: 623669932).
-- **Free Demonstration & Installation:** Trained biomedical technicians provide bedside demonstration and training for patients and family members in Kathmandu Valley.
-- **2-Hour Emergency Dispatch:** Urgent medical delivery available 24/7 in Baneshwor, Maharajgunj, Chabahil, Thamel, Lalitpur (Patan), Bhaktapur, and Tarkeshwor.
+| **Brand New Purchase (100% Genuine)** | **NPR 66,000** (MRP: NPR 75,000) | In Stock (Tripureshwor Warehouse) | [Buy Online Now](https://www.bhagwatimedicare.com.np/product/electric-two-function-hospital-bed-deluxe-price-in-nepal) |
+| **Monthly Homecare Rental** | **NPR 5,000 / Month** | Ready for Bedside Delivery | [Book Rental Unit](https://www.bhagwatimedicare.com.np/product/electric-two-function-hospital-bed-deluxe-price-in-nepal) |
+| **Weekly Rental** | **NPR 1,500 / Week** | Available 24/7 | [Rent for 1 Week](https://www.bhagwatimedicare.com.np/product/electric-two-function-hospital-bed-deluxe-price-in-nepal) |
+| **Wholesale / Hospital Bulk Supply** | **Special B2B Margin (Call/WhatsApp)** | Immediate Bulk Dispatch | [WhatsApp Wholesale Inquiry](https://wa.me/9779761801046) |
 
 ---
 
 ## ⚙️ Detailed Technical Specifications
 
-| Specification Parameter | Value / Detail |
+| Specification Parameter | Value / Clinical Detail |
 | :--- | :--- |
-| **Product Name** | Electric 2 Function Deluxe Hospital Bed With Remote Control & Mattress |
-| **Product SKU / Code** | `BM-BED-ELEC2F-142K` |
+| **Product Full Name** | Electric 2-Function Deluxe Patient Hospital Bed with Remote & Medical Mattress |
+| **Product Model / SKU** |  |
 | **Category** | [Hospital Furniture](https://www.bhagwatimedicare.com.np/product?category=Hospital%20Furniture) (अस्पताल बेड, आइसीयु बेड र मेडिकल फर्निचर) |
-| **Brand / Manufacturer** | Bhagwati Certified |
-| **Origin / Quality Standard** | CE Certified / ISO Medical Standard / Hospital Grade |
-| **Nepal Authorized Stockist** | Bhagwati Medicare Pvt. Ltd. (Tripureshwor, Kathmandu) |
-| **Delivery Radius** | All 77 Districts of Nepal (Kathmandu Valley 2-Hour Express) |
-| **Category** | Hospital Furniture |
-| **Brand** | Bhagwati Certified |
-| **Type** | Two-Function Electric Hospital Bed |
-| **Backrest Adjustment** | 0° - 75° (Motorized) |
-| **Knee-rest Adjustment** | 0° - 45° (Motorized) |
-| **Weight Capacity** | Up to 250 kg (Heavy Duty) |
-| **Casters** | 4x 5-inch Silent Swivel Casters with Individual Brakes |
-| **Side Rails** | Foldable Aluminum Alloy Safety Guard Rails |
-| **Power Supply** | AC 220V / 50Hz with Overload Protection |
-| **Dispatch Location** | Tripureshwor, Kathmandu, Nepal |
-| **Warranty** | 2 Years Official Warranty & Free Biomedical Engineer Setup |
+| **Brand / Manufacturer** | Bhagwati Medicare Deluxe |
+| **Authorized Nepal Stockist** | Bhagwati Medicare Pvt. Ltd. (Tripureshwor, Kathmandu) |
+| **IRD VAT Compliance** | 100% Verified Nepal VAT Tax Invoice (PAN: 623669932) |
+| **Adjustment Functions** | 2 Motorized (Electronic Backrest Elevation & Leg-Rest Elevation) |
+| **Backrest Angle Range** | 0° – 75° (Smooth Handheld Remote Operation) |
+| **Knee Rest Angle Range** | 0° – 40° |
+| **Overall Dimensions** | 2120 mm (L) × 970 mm (W) × 500 mm (H) |
+| **Load Capacity** | 200 kg (440 lbs) High Tensile Cold-Rolled Steel Frame |
+| **Safety Side Rails** | Fold-Down Aluminum Alloy Rails with One-Touch Safety Lock |
+| **Head & Foot Boards** | Detachable Aesthetic Molded ABS Plastic Panels with Buffer Wheels |
+| **Castors** | 4 × 125mm Smooth Noiseless Swivel Wheels with Individual Foot Step Brakes |
+| **Mattress Platform** | Perforated Anti-Rust Steel Plate for Breathability |
+| **Included Accessories** | 4-Inch 2-Section Waterproof Medical Mattress + Telescopic IV Pole |
+| **Delivery Radius** | All 77 Districts of Nepal (Kathmandu Valley 2-Hour Express Delivery) |
 
 ---
 
-## 🌐 Popular Search Queries & Customer Keywords (Google SEO Matrix)
+## 🌐 Google Search Matrix & High-Traffic Keywords
 
-Patients, doctors, and clinics search for this product using diverse terms across Nepal:
+Clinics, doctors, biomedical engineers, and patient families search for this product using diverse queries across Nepal:
 
-### 🇳🇵 नेपाली भाषामा खोजिने शब्दहरू (Nepali Search Queries):
-- **Electric 2 Function Deluxe Hospital Bed with Remote Control & Mattress सस्तो मूल्य नेपाल**
-- **काठमाडौंमा Electric 2 Function Deluxe Hospital Bed with Remote Control & Mattress किन्ने आधिकारिक पसल**
-- **त्रिपुरेश्वर मेडिकल बजारमा Hospital Furniture को मूल्य**
-- **अस्पताल बेड, आइसीयु बेड र मेडिकल फर्निचर भाडामा तथा नयाँ खरिद काठमाडौं**
-- **भगवती मेडिकेयर त्रिपुरेश्वर मेडिकल सामान फोन नम्बर +977-9761801046**
+### 🇳🇵 नेपाली भाषामा खोजिने मुख्य शब्दहरू (Nepali Search Queries):
+- **नेपालमा Electric 2-Function Deluxe Patient Hospital Bed with Remote & Medical Mattress को आधिकारिक मूल्य**
+- **काठमाडौंमा Electric 2-Function Deluxe Patient Hospital Bed with Remote & Medical Mattress किन्ने वा भाडामा लिने पसल**
+- **त्रिपुरेश्वर मेडिकल बजारमा Hospital Furniture होलसेल रेट**
+- **सस्तो मूल्यमा १००% प्रिमियम क्वालिटीको Electric 2-Function Deluxe Patient Hospital Bed with Remote & Medical Mattress**
+- **भगवती मेडिकेयर त्रिपुरेश्वर मेडिकल स्टोर फोन नम्बर +977-9761801046**
 
-### 🌍 English & Romanized Search Terms:
-- `Electric 2 Function Deluxe Hospital Bed with Remote Control & Mattress price in nepal`
-- `Electric 2 Function Deluxe Hospital Bed with Remote Control & Mattress kathmandu`
-- `Electric 2 Function Deluxe Hospital Bed with Remote Control & Mattress tripureshwor`
-- `buy Electric 2 Function Deluxe Hospital Bed with Remote Control & Mattress nepal`
-- `sasto Electric 2 Function Deluxe Hospital Bed with Remote Control & Mattress nepal`
-- `best Electric 2 Function Deluxe Hospital Bed with Remote Control & Mattress in kathmandu`
-- `original Bhagwati Certified Hospital Furniture nepal`
-- `Electric 2 Function Deluxe Hospital Bed with Remote Control & Mattress wholesale supplier tripureshwor`
-- `Electric 2 Function Deluxe Hospital Bed with Remote Control & Mattress delivery kathmandu lalitpur bhaktapur`
-- `अस्पताल बेड, आइसीयु बेड र मेडिकल फर्निचर मूल्य नेपाल`
+### 🌍 High-Converting English Search Intent:
+- `2 function electric hospital bed price nepal`
+- `2 function electric hospital bed price nepal kathmandu`
+- `2 function electric hospital bed price nepal tripureshwor`
+- `buy electric 2-function hospital bed online nepal`
+- `rent electric 2-function hospital bed kathmandu`
+- `best electric 2-function hospital bed supplier in nepal`
+- `sasto electric 2-function hospital bed nepal`
+- `bhagwati medicare tripureshwor 2 function electric hospital bed price nepal`
 
 ---
 
 ## ❓ Frequently Asked Questions (FAQ)
 
-### १. How much does Electric 2 Function Deluxe Hospital Bed With Remote Control & Mattress cost in Nepal?
-At Bhagwati Medicare Pvt. Ltd., **Electric 2 Function Deluxe Hospital Bed With Remote Control & Mattress** is available at the factory-direct wholesale price of **NPR 142,000**, which includes official VAT tax invoicing and manufacturer warranty.
+### 1. How much does an Electric 2-Function hospital bed cost in Nepal?
+The Electric 2-Function Deluxe Bed costs NPR 66,000 at Bhagwati Medicare Tripureshwor, including 4-inch sectional mattress, IV pole, 1-year motor warranty, and VAT tax bill.
 
-### २. Can I get emergency delivery in Kathmandu today?
-**Yes.** We offer **2-hour express emergency delivery** across Kathmandu, Lalitpur, and Bhaktapur. Call our hotline at `+977-9761801046` or message us directly on WhatsApp.
+### 2. Can I rent this 2-function electric bed in Kathmandu?
+Yes, monthly rental is available at NPR 5,000/month with 2-hour emergency bedside delivery throughout Kathmandu Valley.
 
-### ३. Is this product genuine with warranty?
-**100% Guaranteed.** Bhagwati Medicare is an authorized distributor. All equipment comes with verified manufacturer warranties, serial number tracking, and authentic IRD VAT bills.
+### 3. Is it easy for family members to operate?
+Extremely easy. The handheld pendant controller features intuitive back and leg up/down buttons that allow both the patient and caregiver to adjust positions effortlessly.
 
-### ४. How do I order from outside Kathmandu (Pokhara, Chitwan, Butwal, Biratnagar)?
-We partner with Nepal's fastest cargo and courier networks. Orders dispatched outside the valley arrive securely at your doorstep within 24 to 48 hours.
 
 ---
 
-## 🏥 About Bhagwati Medicare Pvt. Ltd. (नेपालको #१ मेडिकल सप्लायर)
+## 🏢 Why Buy from Bhagwati Medicare Pvt. Ltd.?
 
-- **Head Office & Showroom:** Opposite Dasharath National Stadium Main Gate, Tripureshwor, Kathmandu, Nepal
-- **Regional Hub:** Tarkeshwor / Balaju Bypass, Kathmandu
-- **Hotline Numbers:** `+977 9761801046` / `9761801046`
+1. **Tripureshwor Showroom & Warehouse:** Visit our massive medical equipment showroom located in Tripureshwor, Kathmandu (opposite Dasharath Stadium Gate).
+2. **2-Hour Bedside Express Delivery:** 24/7 round-the-clock emergency delivery with trained biomedical technician setup across Kathmandu, Lalitpur, and Bhaktapur.
+3. **100% Tax Invoiced & DDA Compliant:** We issue authentic Nepal Government 13% VAT invoices (PAN: 623669932) for every retail and institutional hospital purchase.
+4. **Dedicated Warranty & Technical Support:** Official replacement warranties, readily available spare parts, and annual maintenance contracts (AMC).
+
+**📞 Contact & Orders:**
+- **Hotline / WhatsApp:** 
 - **Official Website:** [https://www.bhagwatimedicare.com.np](https://www.bhagwatimedicare.com.np)
-- **WhatsApp Support:** [https://wa.me/9779761801046](https://wa.me/9779761801046)
-
----
-
-© 2026 **Bhagwati Medicare Pvt. Ltd.** All Rights Reserved. Engineered for Nepal's Healthcare Dominance by **Sunil Dhital**.
+- **Showroom Address:** Tripureshwor Medical Market, Kathmandu, Nepal

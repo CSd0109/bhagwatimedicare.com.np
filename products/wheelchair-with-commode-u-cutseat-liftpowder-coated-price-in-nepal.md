@@ -1,112 +1,109 @@
-# Wheelchair With Commode U Cutseat Liftpowder Coated Price in Nepal, Specs & 2-Hour Delivery | Bhagwati Medicare
+# Foldable Commode Wheelchair with U-Cut Removable Seat Price in Nepal | Bhagwati Medicare
 
 [![Official Store](https://www.bhagwatimedicare.com.np/logo.jpg)](https://www.bhagwatimedicare.com.np/product/wheelchair-with-commode-u-cutseat-liftpowder-coated-price-in-nepal)
 
 [![Website](https://www.bhagwatimedicare.com.np)](https://www.bhagwatimedicare.com.np/product/wheelchair-with-commode-u-cutseat-liftpowder-coated-price-in-nepal)
-[![Price](https://img.shields.io/badge/Price-NPR_1,200_(Best_Wholesale)-brightgreen?style=for-the-badge)](https://www.bhagwatimedicare.com.np/product/wheelchair-with-commode-u-cutseat-liftpowder-coated-price-in-nepal)
+[![Price](https://img.shields.io/badge/Price-NPR_13,800_(Best_Wholesale)-brightgreen?style=for-the-badge)](https://www.bhagwatimedicare.com.np/product/wheelchair-with-commode-u-cutseat-liftpowder-coated-price-in-nepal)
 [![Delivery](https://img.shields.io/badge/Delivery-2_Hour_Express_Kathmandu-blue?style=for-the-badge)](https://www.bhagwatimedicare.com.np/product/wheelchair-with-commode-u-cutseat-liftpowder-coated-price-in-nepal)
 [![Warranty](https://img.shields.io/badge/Warranty-100%25_Official_IRD_VAT-orange?style=for-the-badge)](https://www.bhagwatimedicare.com.np/product/wheelchair-with-commode-u-cutseat-liftpowder-coated-price-in-nepal)
 
 > **Direct Official Link to Buy:** [https://www.bhagwatimedicare.com.np/product/wheelchair-with-commode-u-cutseat-liftpowder-coated-price-in-nepal](https://www.bhagwatimedicare.com.np/product/wheelchair-with-commode-u-cutseat-liftpowder-coated-price-in-nepal)  
-> **Direct WhatsApp Order:** [Click to Chat on WhatsApp (+977-9761801046)](https://wa.me/9779761801046?text=Hello%20Bhagwati%20Medicare,%20I%20want%20to%20order%20Wheelchair%20With%20Commode%20U%20Cutseat%20Liftpowder%20Coated%20Price%20In%20Nepal)  
-> **24/7 Emergency Medical Hotline:** `+977-9761801046`  
-> **Store Location:** Tripureshwor Medical Market (Opposite Dasharath Stadium Gate), Kathmandu, Nepal
+> **Direct WhatsApp Order:** [Click to Chat on WhatsApp (+977-9761801046)](https://wa.me/9779761801046?text=Namaste%20Bhagwati%20Medicare,%20I%20want%20to%20order%20Foldable%20Commode%20Wheelchair%20with%20U-Cut%20Removable%20Seat%20&%20Attendant%20Brakes)  
+> **24/7 Emergency Medical Hotline:**   
+> **Showroom & Warehouse:** Tripureshwor Medical Market (Opposite Dasharath Stadium Gate), Kathmandu, Nepal
 
 ---
 
-## 📸 Product Overview & Visuals
+## 📸 Product Overview & Clinical Insights
 
-![Wheelchair With Commode U Cutseat Liftpowder Coated Price In Nepal](https://whwrxjbwkpulplesztet.supabase.co/storage/v1/object/public/ArchanaSurgical/products/1773907781455-0-Untitled.png-ec869a2d-8c55-4244-b7b6-687a17fb1029.webp)
+![Foldable Commode Wheelchair with U-Cut Removable Seat & Attendant Brakes](https://www.bhagwatimedicare.com.np/logo.jpg)
 
-**Wheelchair With Commode U Cutseat Liftpowder Coated Price In Nepal** is Nepal's top-rated healthcare supply solution distributed by **Bhagwati Medicare Pvt. Ltd.** (नेपालको #१ मेडिकल सप्लायर). We provide direct importer factory pricing, guaranteed 100% genuine medical equipment, and 2-hour emergency bedside delivery throughout Kathmandu, Lalitpur, and Bhaktapur, as well as fast courier dispatch across all 77 districts of Nepal.
+**Foldable Commode Wheelchair with U-Cut Removable Seat & Attendant Brakes** is Nepal's most reliable and certified healthcare equipment solution distributed by **Bhagwati Medicare Pvt. Ltd.** (नेपालको #१ आधिकारिक मेडिकल सप्लायर).
+
+The Foldable Commode Wheelchair is a versatile 2-in-1 medical mobility and bedside toileting aid engineered for elderly patients, paraplegic individuals, and post-operative patients. Constructed from heavy-gauge electrostatic powder-coated carbon steel, it features a waterproof cushioned leatherette seat with a removable center U-cut lid that seamlessly reveals a slide-out commode bucket with an airtight odor-sealing cover. Fitted with 24-inch solid puncture-free rubber rear wheels with self-propulsion handrims, dual parking brakes, attendant handle brakes, and flip-up armrests for painless bed transfers.
 
 ---
 
-## 💰 Official Pricing & Purchase Options in Nepal
+## 💰 Official Pricing, Wholesale & Rental in Nepal
 
-| Service / Option | Official Rate (NPR) | Availability | Fast Action Link |
+| Option / Package | Official Rate (NPR) | Stock Status | Direct Action |
 | :--- | :--- | :--- | :--- |
-| **Direct Purchase (Brand New)** | **NPR 1,200** (VAT Inclusive) | In Stock (Immediate Dispatch) | [Buy Now Online](https://www.bhagwatimedicare.com.np/product/wheelchair-with-commode-u-cutseat-liftpowder-coated-price-in-nepal) |
-| **Monthly Rental (24/7 Homecare)** | **NPR 2,500 / Month** | Ready for Bedside Setup | [Book Rental Unit](https://www.bhagwatimedicare.com.np/product-rent) |
-| **Weekly Rental** | **NPR 0 / Week** | Available | [Rent for 1 Week](https://www.bhagwatimedicare.com.np/product-rent) |
-
----
-
-## 🔍 Key Features & Clinical Benefits
-- **100% Original Certified**
-- **Warranty Included**
-- **Hospital Grade Quality**
-
-- **100% Genuine Importer Warranty:** Backed by authorized brand service and official Inland Revenue Department (IRD) VAT invoice (PAN: 623669932).
-- **Free Demonstration & Installation:** Trained biomedical technicians provide bedside demonstration and training for patients and family members in Kathmandu Valley.
-- **2-Hour Emergency Dispatch:** Urgent medical delivery available 24/7 in Baneshwor, Maharajgunj, Chabahil, Thamel, Lalitpur (Patan), Bhaktapur, and Tarkeshwor.
+| **Brand New Purchase (100% Genuine)** | **NPR 13,800** (MRP: NPR 16,500) | In Stock (Tripureshwor Warehouse) | [Buy Online Now](https://www.bhagwatimedicare.com.np/product/wheelchair-with-commode-u-cutseat-liftpowder-coated-price-in-nepal) |
+| **Monthly Homecare Rental** | **NPR 3,500 / Month** | Ready for Bedside Delivery | [Book Rental Unit](https://www.bhagwatimedicare.com.np/product/wheelchair-with-commode-u-cutseat-liftpowder-coated-price-in-nepal) |
+| **Weekly Rental** | **NPR 1,200 / Week** | Available 24/7 | [Rent for 1 Week](https://www.bhagwatimedicare.com.np/product/wheelchair-with-commode-u-cutseat-liftpowder-coated-price-in-nepal) |
+| **Wholesale / Hospital Bulk Supply** | **Special B2B Margin (Call/WhatsApp)** | Immediate Bulk Dispatch | [WhatsApp Wholesale Inquiry](https://wa.me/9779761801046) |
 
 ---
 
 ## ⚙️ Detailed Technical Specifications
 
-| Specification Parameter | Value / Detail |
+| Specification Parameter | Value / Clinical Detail |
 | :--- | :--- |
-| **Product Name** | Wheelchair With Commode U Cutseat Liftpowder Coated Price In Nepal |
-| **Product SKU / Code** | `BM-WHEELCHA` |
-| **Category** | [Wheelchair & Commode](https://www.bhagwatimedicare.com.np/product?category=Wheelchair%20%26%20Commode) (ह्वीलचेयर, कमोड कुर्सी र वाकर) |
-| **Brand / Manufacturer** | Bagawati Medicare |
-| **Origin / Quality Standard** | CE Certified / ISO Medical Standard / Hospital Grade |
-| **Nepal Authorized Stockist** | Bhagwati Medicare Pvt. Ltd. (Tripureshwor, Kathmandu) |
-| **Delivery Radius** | All 77 Districts of Nepal (Kathmandu Valley 2-Hour Express) |
-| **Warranty** | 1 Year |
+| **Product Full Name** | Foldable Commode Wheelchair with U-Cut Removable Seat & Attendant Brakes |
+| **Product Model / SKU** |  |
+| **Category** | [Mobility](https://www.bhagwatimedicare.com.np/product?category=Mobility) (ह्वीलचेयर, कमोड र मोबिलिटी उपकरण) |
+| **Brand / Manufacturer** | Bhagwati Medicare Mobility |
+| **Authorized Nepal Stockist** | Bhagwati Medicare Pvt. Ltd. (Tripureshwor, Kathmandu) |
+| **IRD VAT Compliance** | 100% Verified Nepal VAT Tax Invoice (PAN: 623669932) |
+| **Frame Material** | High-Strength Powder-Coated Anti-Corrosive Carbon Steel |
+| **Dual Functionality** | Standard Mobility Wheelchair + Removable Commode Toilet Pail |
+| **Seat Design** | Waterproof High-Density Foam with Removable U-Cut Center Cushion |
+| **Commode Bucket** | Slide-Out Autoclavable Plastic Pail with Carry Handle & Splash Lid |
+| **Rear Wheels** | 24-Inch Solid Rubber Spoke Wheels (100% Puncture-Proof) |
+| **Front Castors** | 8-Inch Solid High-Impact 360° Swivel Wheels |
+| **Braking Mechanism** | Dual Safety System: Manual Wheel Lock Brakes + Attendant Handle Brakes |
+| **Foldable Structure** | Side-Folding X-Frame (Folds to 28 cm Width for Easy Car Transport) |
+| **Max Weight Capacity** | 120 kg (265 lbs) |
+| **Seat Dimensions** | Width: 46 cm (18 inches) | Depth: 43 cm | Overall Width: 65 cm |
+| **Delivery Radius** | All 77 Districts of Nepal (Kathmandu Valley 2-Hour Express Delivery) |
 
 ---
 
-## 🌐 Popular Search Queries & Customer Keywords (Google SEO Matrix)
+## 🌐 Google Search Matrix & High-Traffic Keywords
 
-Patients, doctors, and clinics search for this product using diverse terms across Nepal:
+Clinics, doctors, biomedical engineers, and patient families search for this product using diverse queries across Nepal:
 
-### 🇳🇵 नेपाली भाषामा खोजिने शब्दहरू (Nepali Search Queries):
-- **wheelchair with commode u cutseat liftpowder coated price in nepal सस्तो मूल्य नेपाल**
-- **काठमाडौंमा wheelchair with commode u cutseat liftpowder coated price in nepal किन्ने आधिकारिक पसल**
-- **त्रिपुरेश्वर मेडिकल बजारमा Wheelchair & Commode को मूल्य**
-- **ह्वीलचेयर, कमोड कुर्सी र वाकर भाडामा तथा नयाँ खरिद काठमाडौं**
-- **भगवती मेडिकेयर त्रिपुरेश्वर मेडिकल सामान फोन नम्बर +977-9761801046**
+### 🇳🇵 नेपाली भाषामा खोजिने मुख्य शब्दहरू (Nepali Search Queries):
+- **नेपालमा Foldable Commode Wheelchair with U-Cut Removable Seat & Attendant Brakes को आधिकारिक मूल्य**
+- **काठमाडौंमा Foldable Commode Wheelchair with U-Cut Removable Seat & Attendant Brakes किन्ने वा भाडामा लिने पसल**
+- **त्रिपुरेश्वर मेडिकल बजारमा Mobility होलसेल रेट**
+- **सस्तो मूल्यमा १००% प्रिमियम क्वालिटीको Foldable Commode Wheelchair with U-Cut Removable Seat & Attendant Brakes**
+- **भगवती मेडिकेयर त्रिपुरेश्वर मेडिकल स्टोर फोन नम्बर +977-9761801046**
 
-### 🌍 English & Romanized Search Terms:
-- `wheelchair with commode u cutseat liftpowder coated price in nepal price in nepal`
-- `wheelchair with commode u cutseat liftpowder coated price in nepal kathmandu`
-- `wheelchair with commode u cutseat liftpowder coated price in nepal tripureshwor`
-- `buy wheelchair with commode u cutseat liftpowder coated price in nepal nepal`
-- `sasto wheelchair with commode u cutseat liftpowder coated price in nepal nepal`
-- `best wheelchair with commode u cutseat liftpowder coated price in nepal in kathmandu`
-- `original Bagawati Medicare Wheelchair & Commode nepal`
-- `wheelchair with commode u cutseat liftpowder coated price in nepal wholesale supplier tripureshwor`
-- `wheelchair with commode u cutseat liftpowder coated price in nepal delivery kathmandu lalitpur bhaktapur`
-- `ह्वीलचेयर, कमोड कुर्सी र वाकर मूल्य नेपाल`
+### 🌍 High-Converting English Search Intent:
+- `commode wheelchair price in nepal`
+- `commode wheelchair price in nepal kathmandu`
+- `commode wheelchair price in nepal tripureshwor`
+- `buy foldable commode wheelchair online nepal`
+- `rent foldable commode wheelchair kathmandu`
+- `best foldable commode wheelchair supplier in nepal`
+- `sasto foldable commode wheelchair nepal`
+- `bhagwati medicare tripureshwor commode wheelchair price in nepal`
 
 ---
 
 ## ❓ Frequently Asked Questions (FAQ)
 
-### १. How much does Wheelchair With Commode U Cutseat Liftpowder Coated Price In Nepal cost in Nepal?
-At Bhagwati Medicare Pvt. Ltd., **Wheelchair With Commode U Cutseat Liftpowder Coated Price In Nepal** is available at the factory-direct wholesale price of **NPR 1,200**, which includes official VAT tax invoicing and manufacturer warranty.
+### 1. What is the price of a commode wheelchair in Nepal?
+At Bhagwati Medicare Tripureshwor, the Foldable Commode Wheelchair with U-Cut Seat is priced at NPR 13,800 (MRP NPR 16,500), including commode bucket and lid.
 
-### २. Can I get emergency delivery in Kathmandu today?
-**Yes.** We offer **2-hour express emergency delivery** across Kathmandu, Lalitpur, and Bhaktapur. Call our hotline at `+977-9761801046` or message us directly on WhatsApp.
+### 2. Can this wheelchair be rented in Kathmandu?
+Yes, monthly rental is available at NPR 3,500/month with immediate same-day delivery throughout Kathmandu Valley.
 
-### ३. Is this product genuine with warranty?
-**100% Guaranteed.** Bhagwati Medicare is an authorized distributor. All equipment comes with verified manufacturer warranties, serial number tracking, and authentic IRD VAT bills.
+### 3. Can the patient push themselves independently?
+Yes. The 24-inch rear wheels are fitted with smooth chrome handrims, allowing patients to propel themselves independently or be pushed by a caregiver.
 
-### ४. How do I order from outside Kathmandu (Pokhara, Chitwan, Butwal, Biratnagar)?
-We partner with Nepal's fastest cargo and courier networks. Orders dispatched outside the valley arrive securely at your doorstep within 24 to 48 hours.
 
 ---
 
-## 🏥 About Bhagwati Medicare Pvt. Ltd. (नेपालको #१ मेडिकल सप्लायर)
+## 🏢 Why Buy from Bhagwati Medicare Pvt. Ltd.?
 
-- **Head Office & Showroom:** Opposite Dasharath National Stadium Main Gate, Tripureshwor, Kathmandu, Nepal
-- **Regional Hub:** Tarkeshwor / Balaju Bypass, Kathmandu
-- **Hotline Numbers:** `+977 9761801046` / `9761801046`
+1. **Tripureshwor Showroom & Warehouse:** Visit our massive medical equipment showroom located in Tripureshwor, Kathmandu (opposite Dasharath Stadium Gate).
+2. **2-Hour Bedside Express Delivery:** 24/7 round-the-clock emergency delivery with trained biomedical technician setup across Kathmandu, Lalitpur, and Bhaktapur.
+3. **100% Tax Invoiced & DDA Compliant:** We issue authentic Nepal Government 13% VAT invoices (PAN: 623669932) for every retail and institutional hospital purchase.
+4. **Dedicated Warranty & Technical Support:** Official replacement warranties, readily available spare parts, and annual maintenance contracts (AMC).
+
+**📞 Contact & Orders:**
+- **Hotline / WhatsApp:** 
 - **Official Website:** [https://www.bhagwatimedicare.com.np](https://www.bhagwatimedicare.com.np)
-- **WhatsApp Support:** [https://wa.me/9779761801046](https://wa.me/9779761801046)
-
----
-
-© 2026 **Bhagwati Medicare Pvt. Ltd.** All Rights Reserved. Engineered for Nepal's Healthcare Dominance by **Sunil Dhital**.
+- **Showroom Address:** Tripureshwor Medical Market, Kathmandu, Nepal
